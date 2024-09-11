@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 11 September 2024 17.39.41 UTC
-- WITA: Rabu, 11 September 2024 18.39.41 UTC
-- WIT: Rabu, 11 September 2024 19.39.41 UTC
+- WIB: Rabu, 11 September 2024 18.20.54 UTC
+- WITA: Rabu, 11 September 2024 19.20.54 UTC
+- WIT: Rabu, 11 September 2024 20.20.54 UTC
 
 Kutipan Inspiratif:
-"A stranger stabs you in the front, a friend stabs you in the back, a boyfriend stabs you in the heart, but best friends only poke each other with straws."
+"My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel--it is, before all, to make you see."
 
 
-Kategori: friendship
+Kategori: inspirational
 
