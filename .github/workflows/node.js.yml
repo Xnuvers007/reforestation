@@ -5,7 +5,7 @@ on:
     branches: main
   workflow_dispatch:
   schedule:
-    - cron: '5 * * * *'
+    - cron: '10 * * * *'
 
 jobs:
   build:
@@ -31,6 +31,7 @@ jobs:
           GITHUB_TOKEN: ${{ secrets.token_gh }}
     - name: Auto GIT
       run: |
+          git status
           git add .
           git commit -am "Jangan Lupa Follow https://www.instagram.com/Indradwi.25"
           git push
