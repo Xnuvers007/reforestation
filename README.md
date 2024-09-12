@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 13 September 2024 03.25.08 UTC
-- WITA: Jumat, 13 September 2024 04.25.08 UTC
-- WIT: Jumat, 13 September 2024 05.25.08 UTC
+- WIB: Jumat, 13 September 2024 04.22.15 UTC
+- WITA: Jumat, 13 September 2024 05.22.15 UTC
+- WIT: Jumat, 13 September 2024 06.22.15 UTC
 
 Kutipan Inspiratif:
-"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
+"There is no market for YOUR EMOTIONS, so never advertise your FEELINGS just display YOUR ATTITUDE.,."
 
 
-Kategori: technology
+Kategori: attitude
 
