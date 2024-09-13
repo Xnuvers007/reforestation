@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 13 September 2024 06.24.50 UTC
-- WITA: Jumat, 13 September 2024 07.24.50 UTC
-- WIT: Jumat, 13 September 2024 08.24.50 UTC
+- WIB: Jumat, 13 September 2024 08.46.13 UTC
+- WITA: Jumat, 13 September 2024 09.46.13 UTC
+- WIT: Jumat, 13 September 2024 10.46.13 UTC
 
 Kutipan Inspiratif:
-"Nobody can make you feel inferior without your consent."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: motivational
+Kategori: attitude
 
