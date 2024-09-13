@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 13 September 2024 23.29.01 UTC
-- WITA: Sabtu, 14 September 2024 00.29.01 UTC
-- WIT: Sabtu, 14 September 2024 01.29.01 UTC
+- WIB: Sabtu, 14 September 2024 00.23.37 UTC
+- WITA: Sabtu, 14 September 2024 01.23.37 UTC
+- WIT: Sabtu, 14 September 2024 02.23.37 UTC
 
 Kutipan Inspiratif:
-"He who controls the past controls the future. He who controls the present controls the past."
+"Im sorry my fault. I forgot youre an Idiot."
 
 
-Kategori: inspirational
+Kategori: attitude
 
