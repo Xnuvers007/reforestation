@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 14 September 2024 04.22.52 UTC
-- WITA: Sabtu, 14 September 2024 05.22.52 UTC
-- WIT: Sabtu, 14 September 2024 06.22.52 UTC
+- WIB: Sabtu, 14 September 2024 05.25.47 UTC
+- WITA: Sabtu, 14 September 2024 06.25.47 UTC
+- WIT: Sabtu, 14 September 2024 07.25.47 UTC
 
 Kutipan Inspiratif:
-"Success and failure are both part of life. Both are not permanent."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: success
+Kategori: attitude
 
