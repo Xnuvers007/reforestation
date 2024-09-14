@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 14 September 2024 08.44.34 UTC
-- WITA: Sabtu, 14 September 2024 09.44.34 UTC
-- WIT: Sabtu, 14 September 2024 10.44.34 UTC
+- WIB: Sabtu, 14 September 2024 09.46.56 UTC
+- WITA: Sabtu, 14 September 2024 10.46.56 UTC
+- WIT: Sabtu, 14 September 2024 11.46.56 UTC
 
 Kutipan Inspiratif:
-"Success and failure are both part of life. Both are not permanent."
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: success
+Kategori: inspirational
 
