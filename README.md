@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 14 September 2024 15.29.02 UTC
-- WITA: Sabtu, 14 September 2024 16.29.02 UTC
-- WIT: Sabtu, 14 September 2024 17.29.02 UTC
+- WIB: Sabtu, 14 September 2024 16.23.23 UTC
+- WITA: Sabtu, 14 September 2024 17.23.23 UTC
+- WIT: Sabtu, 14 September 2024 18.23.23 UTC
 
 Kutipan Inspiratif:
-"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
-Kategori: nature
+Kategori: technology
 
