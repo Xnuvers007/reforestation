@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 15 September 2024 10.30.05 UTC
-- WITA: Minggu, 15 September 2024 11.30.05 UTC
-- WIT: Minggu, 15 September 2024 12.30.05 UTC
+- WIB: Minggu, 15 September 2024 11.28.07 UTC
+- WITA: Minggu, 15 September 2024 12.28.07 UTC
+- WIT: Minggu, 15 September 2024 13.28.07 UTC
 
 Kutipan Inspiratif:
-"Successful people are not gifted; they just work hard, then succeed on purpose."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: success
+Kategori: nature
 
