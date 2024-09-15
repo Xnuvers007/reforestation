@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 15 September 2024 23.30.11 UTC
-- WITA: Senin, 16 September 2024 00.30.11 UTC
-- WIT: Senin, 16 September 2024 01.30.11 UTC
+- WIB: Senin, 16 September 2024 00.22.22 UTC
+- WITA: Senin, 16 September 2024 01.22.22 UTC
+- WIT: Senin, 16 September 2024 02.22.22 UTC
 
 Kutipan Inspiratif:
-"The technology of the time dictated the way things looked."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: technology
+Kategori: nature
 
