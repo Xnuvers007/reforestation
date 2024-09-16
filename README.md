@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 16 September 2024 16.29.19 UTC
-- WITA: Senin, 16 September 2024 17.29.19 UTC
-- WIT: Senin, 16 September 2024 18.29.19 UTC
+- WIB: Senin, 16 September 2024 17.29.28 UTC
+- WITA: Senin, 16 September 2024 18.29.28 UTC
+- WIT: Senin, 16 September 2024 19.29.28 UTC
 
 Kutipan Inspiratif:
-"The great growling engine of change - technology."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: technology
+Kategori: attitude
 
