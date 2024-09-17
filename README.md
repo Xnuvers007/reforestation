@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 17 September 2024 06.20.44 UTC
-- WITA: Selasa, 17 September 2024 07.20.44 UTC
-- WIT: Selasa, 17 September 2024 08.20.44 UTC
+- WIB: Selasa, 17 September 2024 08.23.05 UTC
+- WITA: Selasa, 17 September 2024 09.23.05 UTC
+- WIT: Selasa, 17 September 2024 10.23.05 UTC
 
 Kutipan Inspiratif:
-"You create beauty with your attitude, your behaviours, and your actions. Its all up to you"
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: attitude
+Kategori: inspirational
 
