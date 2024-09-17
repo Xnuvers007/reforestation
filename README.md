@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 17 September 2024 23.30.38 UTC
-- WITA: Rabu, 18 September 2024 00.30.38 UTC
-- WIT: Rabu, 18 September 2024 01.30.38 UTC
+- WIB: Rabu, 18 September 2024 00.24.32 UTC
+- WITA: Rabu, 18 September 2024 01.24.32 UTC
+- WIT: Rabu, 18 September 2024 02.24.32 UTC
 
 Kutipan Inspiratif:
-"The power of imagination makes us infinite."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: inspirational
+Kategori: attitude
 
