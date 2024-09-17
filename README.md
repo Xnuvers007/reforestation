@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 17 September 2024 14.21.53 UTC
-- WITA: Selasa, 17 September 2024 15.21.53 UTC
-- WIT: Selasa, 17 September 2024 16.21.53 UTC
+- WIB: Selasa, 17 September 2024 15.30.34 UTC
+- WITA: Selasa, 17 September 2024 16.30.34 UTC
+- WIT: Selasa, 17 September 2024 17.30.34 UTC
 
 Kutipan Inspiratif:
-"There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle"
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
 Kategori: motivational
