@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 19 September 2024 11.28.44 UTC
-- WITA: Kamis, 19 September 2024 12.28.44 UTC
-- WIT: Kamis, 19 September 2024 13.28.44 UTC
+- WIB: Kamis, 19 September 2024 12.26.04 UTC
+- WITA: Kamis, 19 September 2024 13.26.04 UTC
+- WIT: Kamis, 19 September 2024 14.26.04 UTC
 
 Kutipan Inspiratif:
-"This is not the end, this is not even the beginning of the end, this is just perhaps the end of the beginning."
+"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
 
 
-Kategori: inspirational
+Kategori: motivational
 
