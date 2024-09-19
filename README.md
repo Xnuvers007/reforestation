@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 19 September 2024 18.20.39 UTC
-- WITA: Kamis, 19 September 2024 19.20.39 UTC
-- WIT: Kamis, 19 September 2024 20.20.39 UTC
+- WIB: Kamis, 19 September 2024 19.46.58 UTC
+- WITA: Kamis, 19 September 2024 20.46.58 UTC
+- WIT: Kamis, 19 September 2024 21.46.58 UTC
 
 Kutipan Inspiratif:
-"If you are player then Im the GAME."
+"He who controls the past controls the future. He who controls the present controls the past."
 
 
-Kategori: funny
+Kategori: inspirational
 
