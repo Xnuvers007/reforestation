@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 21 September 2024 05.26.57 UTC
-- WITA: Sabtu, 21 September 2024 06.26.57 UTC
-- WIT: Sabtu, 21 September 2024 07.26.57 UTC
+- WIB: Sabtu, 21 September 2024 06.22.58 UTC
+- WITA: Sabtu, 21 September 2024 07.22.58 UTC
+- WIT: Sabtu, 21 September 2024 08.22.58 UTC
 
 Kutipan Inspiratif:
-"Smile in front of people who hate you Ur happiness kills them"
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
