@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 22 September 2024 03.23.44 UTC
-- WITA: Minggu, 22 September 2024 04.23.44 UTC
-- WIT: Minggu, 22 September 2024 05.23.44 UTC
+- WIB: Minggu, 22 September 2024 04.21.04 UTC
+- WITA: Minggu, 22 September 2024 05.21.04 UTC
+- WIT: Minggu, 22 September 2024 06.21.04 UTC
 
 Kutipan Inspiratif:
-"Friendship is born at that moment when one person says to another: What! You too? I thought I was the only one."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: friendship
+Kategori: attitude
 
