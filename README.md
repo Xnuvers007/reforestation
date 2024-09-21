@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 22 September 2024 05.24.24 UTC
-- WITA: Minggu, 22 September 2024 06.24.24 UTC
-- WIT: Minggu, 22 September 2024 07.24.24 UTC
+- WIB: Minggu, 22 September 2024 06.22.15 UTC
+- WITA: Minggu, 22 September 2024 07.22.15 UTC
+- WIT: Minggu, 22 September 2024 08.22.15 UTC
 
 Kutipan Inspiratif:
-"80% of boys have girlfriends.. Rest 20% are having brain."
+"Two fundamentals of cool life  Walk like you are the king OR walk like you dont care ,who is the king."
 
 
-Kategori: funny
+Kategori: attitude
 
