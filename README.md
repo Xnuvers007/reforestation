@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 23 September 2024 01.29.58 UTC
-- WITA: Senin, 23 September 2024 02.29.58 UTC
-- WIT: Senin, 23 September 2024 03.29.58 UTC
+- WIB: Senin, 23 September 2024 02.18.11 UTC
+- WITA: Senin, 23 September 2024 03.18.11 UTC
+- WIT: Senin, 23 September 2024 04.18.11 UTC
 
 Kutipan Inspiratif:
-"I am not bound to win, but i am bound to be true. I am not bound to succeed, but i am bound to live up to what light i have."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: success
+Kategori: inspirational
 
