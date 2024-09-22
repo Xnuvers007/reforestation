@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 22 September 2024 12.25.25 UTC
-- WITA: Minggu, 22 September 2024 13.25.25 UTC
-- WIT: Minggu, 22 September 2024 14.25.25 UTC
+- WIB: Minggu, 22 September 2024 13.31.14 UTC
+- WITA: Minggu, 22 September 2024 14.31.14 UTC
+- WIT: Minggu, 22 September 2024 15.31.14 UTC
 
 Kutipan Inspiratif:
-"Full form of study - S-T-U-D-Y = [S]inging, [T]weeting, [U]nlimited Texting, [D]reaming, [Y]awning."
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: funny
+Kategori: inspirational
 
