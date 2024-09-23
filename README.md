@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 23 September 2024 13.34.42 UTC
-- WITA: Senin, 23 September 2024 14.34.42 UTC
-- WIT: Senin, 23 September 2024 15.34.42 UTC
+- WIB: Senin, 23 September 2024 14.22.50 UTC
+- WITA: Senin, 23 September 2024 15.22.50 UTC
+- WIT: Senin, 23 September 2024 16.22.50 UTC
 
 Kutipan Inspiratif:
-"I am not bound to win, but i am bound to be true. I am not bound to succeed, but i am bound to live up to what light i have."
+"He who controls the past controls the future. He who controls the present controls the past."
 
 
-Kategori: success
+Kategori: inspirational
 
