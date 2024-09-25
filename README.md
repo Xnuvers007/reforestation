@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 26 September 2024 02.16.37 UTC
-- WITA: Kamis, 26 September 2024 03.16.37 UTC
-- WIT: Kamis, 26 September 2024 04.16.37 UTC
+- WIB: Kamis, 26 September 2024 03.25.36 UTC
+- WITA: Kamis, 26 September 2024 04.25.36 UTC
+- WIT: Kamis, 26 September 2024 05.25.36 UTC
 
 Kutipan Inspiratif:
-"Chaos in the midst of chaos isn't funny, but chaos in the midst of order is."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: funny
+Kategori: motivational
 
