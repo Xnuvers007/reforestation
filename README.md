@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 26 September 2024 15.31.34 UTC
-- WITA: Kamis, 26 September 2024 16.31.34 UTC
-- WIT: Kamis, 26 September 2024 17.31.34 UTC
+- WIB: Kamis, 26 September 2024 16.26.34 UTC
+- WITA: Kamis, 26 September 2024 17.26.34 UTC
+- WIT: Kamis, 26 September 2024 18.26.34 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"Technology is a useful servant but a dangerous master."
 
 
-Kategori: attitude
+Kategori: technology
 
