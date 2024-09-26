@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 26 September 2024 06.23.38 UTC
-- WITA: Kamis, 26 September 2024 07.23.38 UTC
-- WIT: Kamis, 26 September 2024 08.23.38 UTC
+- WIB: Kamis, 26 September 2024 08.50.05 UTC
+- WITA: Kamis, 26 September 2024 09.50.05 UTC
+- WIT: Kamis, 26 September 2024 10.50.05 UTC
 
 Kutipan Inspiratif:
-"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: motivational
+Kategori: technology
 
