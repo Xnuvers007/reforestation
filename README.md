@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 29 September 2024 03.24.43 UTC
-- WITA: Minggu, 29 September 2024 04.24.43 UTC
-- WIT: Minggu, 29 September 2024 05.24.43 UTC
+- WIB: Minggu, 29 September 2024 04.22.27 UTC
+- WITA: Minggu, 29 September 2024 05.22.27 UTC
+- WIT: Minggu, 29 September 2024 06.22.27 UTC
 
 Kutipan Inspiratif:
-"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
+"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
 
 
-Kategori: technology
+Kategori: motivational
 
