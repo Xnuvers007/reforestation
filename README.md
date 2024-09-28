@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 28 September 2024 18.20.23 UTC
-- WITA: Sabtu, 28 September 2024 19.20.23 UTC
-- WIT: Sabtu, 28 September 2024 20.20.23 UTC
+- WIB: Sabtu, 28 September 2024 19.43.57 UTC
+- WITA: Sabtu, 28 September 2024 20.43.57 UTC
+- WIT: Sabtu, 28 September 2024 21.43.57 UTC
 
 Kutipan Inspiratif:
-"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
 Kategori: technology
