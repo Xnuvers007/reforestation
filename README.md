@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 28 September 2024 22.26.20 UTC
-- WITA: Sabtu, 28 September 2024 23.26.20 UTC
-- WIT: Minggu, 29 September 2024 00.26.20 UTC
+- WIB: Sabtu, 28 September 2024 23.29.11 UTC
+- WITA: Minggu, 29 September 2024 00.29.11 UTC
+- WIT: Minggu, 29 September 2024 01.29.11 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: attitude
+Kategori: inspirational
 
