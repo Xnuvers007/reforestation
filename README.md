@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 30 September 2024 20.32.53 UTC
-- WITA: Senin, 30 September 2024 21.32.53 UTC
-- WIT: Senin, 30 September 2024 22.32.53 UTC
+- WIB: Senin, 30 September 2024 21.27.51 UTC
+- WITA: Senin, 30 September 2024 22.27.51 UTC
+- WIT: Senin, 30 September 2024 23.27.51 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"When WORDS fail, eyes speak.When eyes fail,?HEART? speaks. When HEART fails, nothing speaks they put cotton in the nose"
 
 
-Kategori: attitude
+Kategori: funny
 
