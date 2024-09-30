@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 30 September 2024 08.54.13 UTC
-- WITA: Senin, 30 September 2024 09.54.13 UTC
-- WIT: Senin, 30 September 2024 10.54.13 UTC
+- WIB: Senin, 30 September 2024 10.00.18 UTC
+- WITA: Senin, 30 September 2024 11.00.18 UTC
+- WIT: Senin, 30 September 2024 12.00.18 UTC
 
 Kutipan Inspiratif:
-"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
+"Success is a state of mind. If you want success, start thinking of yourself as a success."
 
 
-Kategori: technology
+Kategori: success
 
