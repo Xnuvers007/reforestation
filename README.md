@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 2 Oktober 2024 02.19.45 UTC
-- WITA: Rabu, 2 Oktober 2024 03.19.45 UTC
-- WIT: Rabu, 2 Oktober 2024 04.19.45 UTC
+- WIB: Rabu, 2 Oktober 2024 03.26.16 UTC
+- WITA: Rabu, 2 Oktober 2024 04.26.16 UTC
+- WIT: Rabu, 2 Oktober 2024 05.26.16 UTC
 
 Kutipan Inspiratif:
-"She is a friend of my mind. She gather me, man. The pieces I am, she gather them and give them back to me in all the right order."
+"People say me bad, trust me i am the worst!!!"
 
 
-Kategori: friendship
+Kategori: attitude
 
