@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 2 Oktober 2024 14.22.50 UTC
-- WITA: Rabu, 2 Oktober 2024 15.22.50 UTC
-- WIT: Rabu, 2 Oktober 2024 16.22.50 UTC
+- WIB: Rabu, 2 Oktober 2024 15.31.41 UTC
+- WITA: Rabu, 2 Oktober 2024 16.31.41 UTC
+- WIT: Rabu, 2 Oktober 2024 17.31.41 UTC
 
 Kutipan Inspiratif:
-"All things are ready if our mind be so."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
