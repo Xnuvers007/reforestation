@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 3 Oktober 2024 15.31.14 UTC
-- WITA: Kamis, 3 Oktober 2024 16.31.14 UTC
-- WIT: Kamis, 3 Oktober 2024 17.31.14 UTC
+- WIB: Kamis, 3 Oktober 2024 16.26.16 UTC
+- WITA: Kamis, 3 Oktober 2024 17.26.16 UTC
+- WIT: Kamis, 3 Oktober 2024 18.26.16 UTC
 
 Kutipan Inspiratif:
-"You will never know what you are capable of until you take that first step and go for it."
+"Reading more books will only confuse you more and you will be dreaming about success instead of becoming successful yourself."
 
 
-Kategori: motivational
+Kategori: success
 
