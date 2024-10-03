@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 3 Oktober 2024 10.30.22 UTC
-- WITA: Kamis, 3 Oktober 2024 11.30.22 UTC
-- WIT: Kamis, 3 Oktober 2024 12.30.22 UTC
+- WIB: Kamis, 3 Oktober 2024 11.31.20 UTC
+- WITA: Kamis, 3 Oktober 2024 12.31.20 UTC
+- WIT: Kamis, 3 Oktober 2024 13.31.20 UTC
 
 Kutipan Inspiratif:
-"The evolution of human mentality has put us all in vitro now behind the glass wall of our own ingenuity."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: nature
+Kategori: technology
 
