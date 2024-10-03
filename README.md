@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 3 Oktober 2024 11.31.20 UTC
-- WITA: Kamis, 3 Oktober 2024 12.31.20 UTC
-- WIT: Kamis, 3 Oktober 2024 13.31.20 UTC
+- WIB: Kamis, 3 Oktober 2024 12.27.14 UTC
+- WITA: Kamis, 3 Oktober 2024 13.27.14 UTC
+- WIT: Kamis, 3 Oktober 2024 14.27.14 UTC
 
 Kutipan Inspiratif:
-"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
 Kategori: technology
