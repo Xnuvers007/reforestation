@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 6 Oktober 2024 17.28.29 UTC
-- WITA: Minggu, 6 Oktober 2024 18.28.29 UTC
-- WIT: Minggu, 6 Oktober 2024 19.28.29 UTC
+- WIB: Minggu, 6 Oktober 2024 18.20.08 UTC
+- WITA: Minggu, 6 Oktober 2024 19.20.08 UTC
+- WIT: Minggu, 6 Oktober 2024 20.20.08 UTC
 
 Kutipan Inspiratif:
-"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: inspirational
+Kategori: technology
 
