@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 7 Oktober 2024 10.32.27 UTC
-- WITA: Senin, 7 Oktober 2024 11.32.27 UTC
-- WIT: Senin, 7 Oktober 2024 12.32.27 UTC
+- WIB: Senin, 7 Oktober 2024 11.30.14 UTC
+- WITA: Senin, 7 Oktober 2024 12.30.14 UTC
+- WIT: Senin, 7 Oktober 2024 13.30.14 UTC
 
 Kutipan Inspiratif:
-"Keep moving! Nothing new to read"
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
