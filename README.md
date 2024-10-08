@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 9 Oktober 2024 04.24.20 UTC
-- WITA: Rabu, 9 Oktober 2024 05.24.20 UTC
-- WIT: Rabu, 9 Oktober 2024 06.24.20 UTC
+- WIB: Rabu, 9 Oktober 2024 05.26.30 UTC
+- WITA: Rabu, 9 Oktober 2024 06.26.30 UTC
+- WIT: Rabu, 9 Oktober 2024 07.26.30 UTC
 
 Kutipan Inspiratif:
-"Not all of us can do great things. But we can do small things with great love."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: inspirational
+Kategori: motivational
 
