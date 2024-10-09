@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 9 Oktober 2024 17.30.01 UTC
-- WITA: Rabu, 9 Oktober 2024 18.30.01 UTC
-- WIT: Rabu, 9 Oktober 2024 19.30.01 UTC
+- WIB: Rabu, 9 Oktober 2024 18.21.14 UTC
+- WITA: Rabu, 9 Oktober 2024 19.21.14 UTC
+- WIT: Rabu, 9 Oktober 2024 20.21.14 UTC
 
 Kutipan Inspiratif:
-"There is only one thing worse than fighting with allies and that is fighting without them."
+"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
 
 
-Kategori: friendship
+Kategori: nature
 
