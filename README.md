@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 11 Oktober 2024 14.23.21 UTC
-- WITA: Jumat, 11 Oktober 2024 15.23.21 UTC
-- WIT: Jumat, 11 Oktober 2024 16.23.21 UTC
+- WIB: Jumat, 11 Oktober 2024 15.30.43 UTC
+- WITA: Jumat, 11 Oktober 2024 16.30.43 UTC
+- WIT: Jumat, 11 Oktober 2024 17.30.43 UTC
 
 Kutipan Inspiratif:
-"i am what i am.. i will never try to be some one else."
+"People say me bad, trust me i am the worst!!!"
 
 
 Kategori: attitude
