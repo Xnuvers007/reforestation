@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 12 Oktober 2024 21.23.17 UTC
-- WITA: Sabtu, 12 Oktober 2024 22.23.17 UTC
-- WIT: Sabtu, 12 Oktober 2024 23.23.17 UTC
+- WIB: Sabtu, 12 Oktober 2024 22.24.09 UTC
+- WITA: Sabtu, 12 Oktober 2024 23.24.09 UTC
+- WIT: Minggu, 13 Oktober 2024 00.24.09 UTC
 
 Kutipan Inspiratif:
-"She is a friend of my mind. She gather me, man. The pieces I am, she gather them and give them back to me in all the right order."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: friendship
+Kategori: attitude
 
