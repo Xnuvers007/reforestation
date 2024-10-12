@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 12 Oktober 2024 23.29.56 UTC
-- WITA: Minggu, 13 Oktober 2024 00.29.56 UTC
-- WIT: Minggu, 13 Oktober 2024 01.29.56 UTC
+- WIB: Minggu, 13 Oktober 2024 00.22.33 UTC
+- WITA: Minggu, 13 Oktober 2024 01.22.33 UTC
+- WIT: Minggu, 13 Oktober 2024 02.22.33 UTC
 
 Kutipan Inspiratif:
-"I want some one to give me a Loan and then leave me Alone."
+"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
 
 
-Kategori: funny
+Kategori: motivational
 
