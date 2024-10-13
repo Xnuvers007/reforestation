@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 13 Oktober 2024 23.29.05 UTC
-- WITA: Senin, 14 Oktober 2024 00.29.05 UTC
-- WIT: Senin, 14 Oktober 2024 01.29.05 UTC
+- WIB: Senin, 14 Oktober 2024 00.22.51 UTC
+- WITA: Senin, 14 Oktober 2024 01.22.51 UTC
+- WIT: Senin, 14 Oktober 2024 02.22.51 UTC
 
 Kutipan Inspiratif:
-"You weren't just a star to me, you were my whole damn sky."
+"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
 
 
-Kategori: inspirational
+Kategori: technology
 
