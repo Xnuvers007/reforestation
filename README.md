@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 14 Oktober 2024 15.31.54 UTC
-- WITA: Senin, 14 Oktober 2024 16.31.54 UTC
-- WIT: Senin, 14 Oktober 2024 17.31.54 UTC
+- WIB: Senin, 14 Oktober 2024 16.27.36 UTC
+- WITA: Senin, 14 Oktober 2024 17.27.36 UTC
+- WIT: Senin, 14 Oktober 2024 18.27.36 UTC
 
 Kutipan Inspiratif:
-"Life is like a steering wheel, it only takes one small move to change your entire direction."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: motivational
+Kategori: nature
 
