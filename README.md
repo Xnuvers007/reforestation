@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 17 Oktober 2024 04.24.16 UTC
-- WITA: Kamis, 17 Oktober 2024 05.24.16 UTC
-- WIT: Kamis, 17 Oktober 2024 06.24.16 UTC
+- WIB: Kamis, 17 Oktober 2024 05.26.12 UTC
+- WITA: Kamis, 17 Oktober 2024 06.26.12 UTC
+- WIT: Kamis, 17 Oktober 2024 07.26.12 UTC
 
 Kutipan Inspiratif:
-"When one door closes, another door opens; but we so often look so long and regretfully upon the closed door, that we do not see the ones which open for us."
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
-Kategori: inspirational
+Kategori: motivational
 
