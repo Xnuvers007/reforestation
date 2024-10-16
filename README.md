@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 17 Oktober 2024 00.26.46 UTC
-- WITA: Kamis, 17 Oktober 2024 01.26.46 UTC
-- WIT: Kamis, 17 Oktober 2024 02.26.46 UTC
+- WIB: Kamis, 17 Oktober 2024 01.32.58 UTC
+- WITA: Kamis, 17 Oktober 2024 02.32.58 UTC
+- WIT: Kamis, 17 Oktober 2024 03.32.58 UTC
 
 Kutipan Inspiratif:
-"i am what i am.. i will never try to be some one else."
+"My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel--it is, before all, to make you see."
 
 
-Kategori: attitude
+Kategori: inspirational
 
