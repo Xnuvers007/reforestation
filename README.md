@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 17 Oktober 2024 14.23.40 UTC
-- WITA: Kamis, 17 Oktober 2024 15.23.40 UTC
-- WIT: Kamis, 17 Oktober 2024 16.23.40 UTC
+- WIB: Kamis, 17 Oktober 2024 15.31.25 UTC
+- WITA: Kamis, 17 Oktober 2024 16.31.25 UTC
+- WIT: Kamis, 17 Oktober 2024 17.31.25 UTC
 
 Kutipan Inspiratif:
-"My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel--it is, before all, to make you see."
+"Take chances, make mistakes. That's how you grow. Pain nourishes your courage. You have to fail in order to practice being brave."
 
 
-Kategori: inspirational
+Kategori: motivational
 
