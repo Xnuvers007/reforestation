@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 17 Oktober 2024 23.32.39 UTC
-- WITA: Jumat, 18 Oktober 2024 00.32.39 UTC
-- WIT: Jumat, 18 Oktober 2024 01.32.39 UTC
+- WIB: Jumat, 18 Oktober 2024 00.24.26 UTC
+- WITA: Jumat, 18 Oktober 2024 01.24.26 UTC
+- WIT: Jumat, 18 Oktober 2024 02.24.26 UTC
 
 Kutipan Inspiratif:
-"For greed all nature is too little."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: nature
+Kategori: motivational
 
