@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 18 Oktober 2024 23.31.00 UTC
-- WITA: Sabtu, 19 Oktober 2024 00.31.00 UTC
-- WIT: Sabtu, 19 Oktober 2024 01.31.00 UTC
+- WIB: Sabtu, 19 Oktober 2024 00.24.43 UTC
+- WITA: Sabtu, 19 Oktober 2024 01.24.43 UTC
+- WIT: Sabtu, 19 Oktober 2024 02.24.43 UTC
 
 Kutipan Inspiratif:
-"80% of boys have girlfriends.. Rest 20% are having brain."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: funny
+Kategori: technology
 
