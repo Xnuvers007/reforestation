@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 19 Oktober 2024 23.29.59 UTC
-- WITA: Minggu, 20 Oktober 2024 00.29.59 UTC
-- WIT: Minggu, 20 Oktober 2024 01.29.59 UTC
+- WIB: Minggu, 20 Oktober 2024 00.24.00 UTC
+- WITA: Minggu, 20 Oktober 2024 01.24.00 UTC
+- WIT: Minggu, 20 Oktober 2024 02.24.00 UTC
 
 Kutipan Inspiratif:
-"You will never know what you are capable of until you take that first step and go for it."
+"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
 
 
-Kategori: motivational
+Kategori: nature
 
