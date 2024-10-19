@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 19 Oktober 2024 13.31.43 UTC
-- WITA: Sabtu, 19 Oktober 2024 14.31.43 UTC
-- WIT: Sabtu, 19 Oktober 2024 15.31.43 UTC
+- WIB: Sabtu, 19 Oktober 2024 14.23.13 UTC
+- WITA: Sabtu, 19 Oktober 2024 15.23.13 UTC
+- WIT: Sabtu, 19 Oktober 2024 16.23.13 UTC
 
 Kutipan Inspiratif:
-"Dont Copy My Style."
+"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
 
 
-Kategori: attitude
+Kategori: inspirational
 
