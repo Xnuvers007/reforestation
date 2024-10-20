@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 20 Oktober 2024 12.25.33 UTC
-- WITA: Minggu, 20 Oktober 2024 13.25.33 UTC
-- WIT: Minggu, 20 Oktober 2024 14.25.33 UTC
+- WIB: Minggu, 20 Oktober 2024 13.32.41 UTC
+- WITA: Minggu, 20 Oktober 2024 14.32.41 UTC
+- WIT: Minggu, 20 Oktober 2024 15.32.41 UTC
 
 Kutipan Inspiratif:
-"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
+"Success is a journey, not a destination."
 
 
-Kategori: technology
+Kategori: success
 
