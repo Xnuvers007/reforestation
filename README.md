@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 20 Oktober 2024 11.28.54 UTC
-- WITA: Minggu, 20 Oktober 2024 12.28.54 UTC
-- WIT: Minggu, 20 Oktober 2024 13.28.54 UTC
+- WIB: Minggu, 20 Oktober 2024 12.25.33 UTC
+- WITA: Minggu, 20 Oktober 2024 13.25.33 UTC
+- WIT: Minggu, 20 Oktober 2024 14.25.33 UTC
 
 Kutipan Inspiratif:
-"i am what i am.. i will never try to be some one else."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: attitude
+Kategori: technology
 
