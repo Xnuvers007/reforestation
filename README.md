@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 21 Oktober 2024 03.24.11 UTC
-- WITA: Senin, 21 Oktober 2024 04.24.11 UTC
-- WIT: Senin, 21 Oktober 2024 05.24.11 UTC
+- WIB: Senin, 21 Oktober 2024 04.22.24 UTC
+- WITA: Senin, 21 Oktober 2024 05.22.24 UTC
+- WIT: Senin, 21 Oktober 2024 06.22.24 UTC
 
 Kutipan Inspiratif:
-"If we continue to develop our technology without wisdom or prudence, our servant may prove to be our executioner."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: technology
+Kategori: nature
 
