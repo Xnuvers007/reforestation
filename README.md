@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 23 Oktober 2024 09.54.36 UTC
-- WITA: Rabu, 23 Oktober 2024 10.54.36 UTC
-- WIT: Rabu, 23 Oktober 2024 11.54.36 UTC
+- WIB: Rabu, 23 Oktober 2024 10.30.39 UTC
+- WITA: Rabu, 23 Oktober 2024 11.30.39 UTC
+- WIT: Rabu, 23 Oktober 2024 12.30.39 UTC
 
 Kutipan Inspiratif:
-"Knowledge is like underwear. It is useful to have it, but not necessary to show it off."
+"I'm in favor of any technology that makes my work available to the reading public at a reasonable price."
 
 
-Kategori: funny
+Kategori: technology
 
