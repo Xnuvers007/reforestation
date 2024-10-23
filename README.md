@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 23 Oktober 2024 20.30.57 UTC
-- WITA: Rabu, 23 Oktober 2024 21.30.57 UTC
-- WIT: Rabu, 23 Oktober 2024 22.30.57 UTC
+- WIB: Rabu, 23 Oktober 2024 21.24.49 UTC
+- WITA: Rabu, 23 Oktober 2024 22.24.49 UTC
+- WIT: Rabu, 23 Oktober 2024 23.24.49 UTC
 
 Kutipan Inspiratif:
-"Somebody asked me to explain the relationship between you and me, they expected the answer as, just friends. But I simply smiled and said. Gods gift."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: friendship
+Kategori: nature
 
