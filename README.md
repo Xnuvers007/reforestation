@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 24 Oktober 2024 13.34.32 UTC
-- WITA: Kamis, 24 Oktober 2024 14.34.32 UTC
-- WIT: Kamis, 24 Oktober 2024 15.34.32 UTC
+- WIB: Kamis, 24 Oktober 2024 14.23.20 UTC
+- WITA: Kamis, 24 Oktober 2024 15.23.20 UTC
+- WIT: Kamis, 24 Oktober 2024 16.23.20 UTC
 
 Kutipan Inspiratif:
-"I am who I am, Your approval is not needed"
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
