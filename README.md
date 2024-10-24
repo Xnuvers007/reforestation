@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 24 Oktober 2024 17.28.57 UTC
-- WITA: Kamis, 24 Oktober 2024 18.28.57 UTC
-- WIT: Kamis, 24 Oktober 2024 19.28.57 UTC
+- WIB: Kamis, 24 Oktober 2024 18.20.39 UTC
+- WITA: Kamis, 24 Oktober 2024 19.20.39 UTC
+- WIT: Kamis, 24 Oktober 2024 20.20.39 UTC
 
 Kutipan Inspiratif:
-"No one who achieves success does so without acknowledging the help of others. The wise and confident acknowledge this help with gratitude."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: success
+Kategori: nature
 
