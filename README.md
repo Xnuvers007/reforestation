@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 25 Oktober 2024 14.23.58 UTC
-- WITA: Jumat, 25 Oktober 2024 15.23.58 UTC
-- WIT: Jumat, 25 Oktober 2024 16.23.58 UTC
+- WIB: Jumat, 25 Oktober 2024 15.31.06 UTC
+- WITA: Jumat, 25 Oktober 2024 16.31.06 UTC
+- WIT: Jumat, 25 Oktober 2024 17.31.06 UTC
 
 Kutipan Inspiratif:
-"Strategy is a style of thinking, a conscious and deliberate process, an intensive implementation system, the science of insuring future success."
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
-Kategori: success
+Kategori: technology
 
