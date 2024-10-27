@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 27 Oktober 2024 10.33.47 UTC
-- WITA: Minggu, 27 Oktober 2024 11.33.47 UTC
-- WIT: Minggu, 27 Oktober 2024 12.33.47 UTC
+- WIB: Minggu, 27 Oktober 2024 11.29.18 UTC
+- WITA: Minggu, 27 Oktober 2024 12.29.18 UTC
+- WIT: Minggu, 27 Oktober 2024 13.29.18 UTC
 
 Kutipan Inspiratif:
-"Success is a state of mind. If you want success, start thinking of yourself as a success."
+"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
 
 
-Kategori: success
+Kategori: motivational
 
