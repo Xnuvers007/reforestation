@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 28 Oktober 2024 18.22.09 UTC
-- WITA: Senin, 28 Oktober 2024 19.22.09 UTC
-- WIT: Senin, 28 Oktober 2024 20.22.09 UTC
+- WIB: Senin, 28 Oktober 2024 19.49.56 UTC
+- WITA: Senin, 28 Oktober 2024 20.49.56 UTC
+- WIT: Senin, 28 Oktober 2024 21.49.56 UTC
 
 Kutipan Inspiratif:
-"The further you get into technology, the further you go into gaming. That's the general rule."
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: technology
+Kategori: inspirational
 
