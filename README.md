@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 30 Oktober 2024 02.20.51 UTC
-- WITA: Rabu, 30 Oktober 2024 03.20.51 UTC
-- WIT: Rabu, 30 Oktober 2024 04.20.51 UTC
+- WIB: Rabu, 30 Oktober 2024 03.26.39 UTC
+- WITA: Rabu, 30 Oktober 2024 04.26.39 UTC
+- WIT: Rabu, 30 Oktober 2024 05.26.39 UTC
 
 Kutipan Inspiratif:
-"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: motivational
+Kategori: technology
 
