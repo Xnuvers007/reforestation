@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 30 Oktober 2024 01.33.42 UTC
-- WITA: Rabu, 30 Oktober 2024 02.33.42 UTC
-- WIT: Rabu, 30 Oktober 2024 03.33.42 UTC
+- WIB: Rabu, 30 Oktober 2024 02.20.51 UTC
+- WITA: Rabu, 30 Oktober 2024 03.20.51 UTC
+- WIT: Rabu, 30 Oktober 2024 04.20.51 UTC
 
 Kutipan Inspiratif:
-"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
+"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
 
 
 Kategori: motivational
