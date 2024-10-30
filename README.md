@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 31 Oktober 2024 04.23.29 UTC
-- WITA: Kamis, 31 Oktober 2024 05.23.29 UTC
-- WIT: Kamis, 31 Oktober 2024 06.23.29 UTC
+- WIB: Kamis, 31 Oktober 2024 05.26.22 UTC
+- WITA: Kamis, 31 Oktober 2024 06.26.22 UTC
+- WIT: Kamis, 31 Oktober 2024 07.26.22 UTC
 
 Kutipan Inspiratif:
-"Success and failure are both part of life. Both are not permanent."
+"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
 
 
-Kategori: success
+Kategori: motivational
 
