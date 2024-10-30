@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 31 Oktober 2024 03.26.22 UTC
-- WITA: Kamis, 31 Oktober 2024 04.26.22 UTC
-- WIT: Kamis, 31 Oktober 2024 05.26.22 UTC
+- WIB: Kamis, 31 Oktober 2024 04.23.29 UTC
+- WITA: Kamis, 31 Oktober 2024 05.23.29 UTC
+- WIT: Kamis, 31 Oktober 2024 06.23.29 UTC
 
 Kutipan Inspiratif:
-"You will never know what you are capable of until you take that first step and go for it."
+"Success and failure are both part of life. Both are not permanent."
 
 
-Kategori: motivational
+Kategori: success
 
