@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 3 November 2024 00.22.40 UTC
-- WITA: Minggu, 3 November 2024 01.22.40 UTC
-- WIT: Minggu, 3 November 2024 02.22.40 UTC
+- WIB: Minggu, 3 November 2024 01.30.28 UTC
+- WITA: Minggu, 3 November 2024 02.30.28 UTC
+- WIT: Minggu, 3 November 2024 03.30.28 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"The further you get into technology, the further you go into gaming. That's the general rule."
 
 
-Kategori: attitude
+Kategori: technology
 
