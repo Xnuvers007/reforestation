@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 3 November 2024 10.33.59 UTC
-- WITA: Minggu, 3 November 2024 11.33.59 UTC
-- WIT: Minggu, 3 November 2024 12.33.59 UTC
+- WIB: Minggu, 3 November 2024 11.28.36 UTC
+- WITA: Minggu, 3 November 2024 12.28.36 UTC
+- WIT: Minggu, 3 November 2024 13.28.36 UTC
 
 Kutipan Inspiratif:
-"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: inspirational
+Kategori: technology
 
