@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 3 November 2024 18.20.16 UTC
-- WITA: Minggu, 3 November 2024 19.20.16 UTC
-- WIT: Minggu, 3 November 2024 20.20.16 UTC
+- WIB: Minggu, 3 November 2024 19.43.55 UTC
+- WITA: Minggu, 3 November 2024 20.43.55 UTC
+- WIT: Minggu, 3 November 2024 21.43.55 UTC
 
 Kutipan Inspiratif:
-"Strategy is a style of thinking, a conscious and deliberate process, an intensive implementation system, the science of insuring future success."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: success
+Kategori: motivational
 
