@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 3 November 2024 20.26.58 UTC
-- WITA: Minggu, 3 November 2024 21.26.58 UTC
-- WIT: Minggu, 3 November 2024 22.26.58 UTC
+- WIB: Minggu, 3 November 2024 21.25.26 UTC
+- WITA: Minggu, 3 November 2024 22.25.26 UTC
+- WIT: Minggu, 3 November 2024 23.25.26 UTC
 
 Kutipan Inspiratif:
-"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: motivational
+Kategori: attitude
 
