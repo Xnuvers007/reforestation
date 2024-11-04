@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 4 November 2024 11.29.25 UTC
-- WITA: Senin, 4 November 2024 12.29.25 UTC
-- WIT: Senin, 4 November 2024 13.29.25 UTC
+- WIB: Senin, 4 November 2024 12.27.40 UTC
+- WITA: Senin, 4 November 2024 13.27.40 UTC
+- WIT: Senin, 4 November 2024 14.27.40 UTC
 
 Kutipan Inspiratif:
-"You have eyes my dear but you cannot see."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
-Kategori: funny
+Kategori: inspirational
 
