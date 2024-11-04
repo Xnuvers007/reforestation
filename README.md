@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 5 November 2024 00.24.49 UTC
-- WITA: Selasa, 5 November 2024 01.24.49 UTC
-- WIT: Selasa, 5 November 2024 02.24.49 UTC
+- WIB: Selasa, 5 November 2024 01.32.09 UTC
+- WITA: Selasa, 5 November 2024 02.32.09 UTC
+- WIT: Selasa, 5 November 2024 03.32.09 UTC
 
 Kutipan Inspiratif:
-"You weren't just a star to me, you were my whole damn sky."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: inspirational
+Kategori: attitude
 
