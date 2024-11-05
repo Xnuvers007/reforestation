@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 5 November 2024 16.25.37 UTC
-- WITA: Selasa, 5 November 2024 17.25.37 UTC
-- WIT: Selasa, 5 November 2024 18.25.37 UTC
+- WIB: Selasa, 5 November 2024 17.29.41 UTC
+- WITA: Selasa, 5 November 2024 18.29.41 UTC
+- WIT: Selasa, 5 November 2024 19.29.41 UTC
 
 Kutipan Inspiratif:
-"Successful people are not gifted; they just work hard, then succeed on purpose."
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
 
 
-Kategori: success
+Kategori: inspirational
 
