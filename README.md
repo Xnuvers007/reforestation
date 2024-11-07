@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 8 November 2024 03.25.19 UTC
-- WITA: Jumat, 8 November 2024 04.25.19 UTC
-- WIT: Jumat, 8 November 2024 05.25.19 UTC
+- WIB: Jumat, 8 November 2024 04.22.40 UTC
+- WITA: Jumat, 8 November 2024 05.22.40 UTC
+- WIT: Jumat, 8 November 2024 06.22.40 UTC
 
 Kutipan Inspiratif:
-"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: technology
+Kategori: attitude
 
