@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 7 November 2024 09.53.01 UTC
-- WITA: Kamis, 7 November 2024 10.53.01 UTC
-- WIT: Kamis, 7 November 2024 11.53.01 UTC
+- WIB: Kamis, 7 November 2024 10.30.35 UTC
+- WITA: Kamis, 7 November 2024 11.30.35 UTC
+- WIT: Kamis, 7 November 2024 12.30.35 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"The only place you find success before work is in the dictionary."
 
 
-Kategori: attitude
+Kategori: motivational
 
