@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 8 November 2024 13.32.56 UTC
-- WITA: Jumat, 8 November 2024 14.32.56 UTC
-- WIT: Jumat, 8 November 2024 15.32.56 UTC
+- WIB: Jumat, 8 November 2024 14.22.10 UTC
+- WITA: Jumat, 8 November 2024 15.22.10 UTC
+- WIT: Jumat, 8 November 2024 16.22.10 UTC
 
 Kutipan Inspiratif:
-"Reading more books will only confuse you more and you will be dreaming about success instead of becoming successful yourself."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: success
+Kategori: nature
 
