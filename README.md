@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 8 November 2024 17.28.14 UTC
-- WITA: Jumat, 8 November 2024 18.28.14 UTC
-- WIT: Jumat, 8 November 2024 19.28.14 UTC
+- WIB: Jumat, 8 November 2024 18.19.56 UTC
+- WITA: Jumat, 8 November 2024 19.19.56 UTC
+- WIT: Jumat, 8 November 2024 20.19.56 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
 
 
-Kategori: attitude
+Kategori: technology
 
