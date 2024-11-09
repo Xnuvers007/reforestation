@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 9 November 2024 15.28.20 UTC
-- WITA: Sabtu, 9 November 2024 16.28.20 UTC
-- WIT: Sabtu, 9 November 2024 17.28.20 UTC
+- WIB: Sabtu, 9 November 2024 16.22.36 UTC
+- WITA: Sabtu, 9 November 2024 17.22.36 UTC
+- WIT: Sabtu, 9 November 2024 18.22.36 UTC
 
 Kutipan Inspiratif:
-"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
+"People say me bad, trust me i am the worst!!!"
 
 
-Kategori: technology
+Kategori: attitude
 
