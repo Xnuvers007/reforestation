@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 11 November 2024 08.51.37 UTC
-- WITA: Senin, 11 November 2024 09.51.37 UTC
-- WIT: Senin, 11 November 2024 10.51.37 UTC
+- WIB: Senin, 11 November 2024 09.54.24 UTC
+- WITA: Senin, 11 November 2024 10.54.24 UTC
+- WIT: Senin, 11 November 2024 11.54.24 UTC
 
 Kutipan Inspiratif:
-"Success is a state of mind. If you want success, start thinking of yourself as a success."
+"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
 
 
-Kategori: success
+Kategori: inspirational
 
