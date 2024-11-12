@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 13 November 2024 05.25.32 UTC
-- WITA: Rabu, 13 November 2024 06.25.32 UTC
-- WIT: Rabu, 13 November 2024 07.25.32 UTC
+- WIB: Rabu, 13 November 2024 06.23.16 UTC
+- WITA: Rabu, 13 November 2024 07.23.16 UTC
+- WIT: Rabu, 13 November 2024 08.23.16 UTC
 
 Kutipan Inspiratif:
-"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
+"Two fundamentals of cool life  Walk like you are the king OR walk like you dont care ,who is the king."
 
 
-Kategori: technology
+Kategori: attitude
 
