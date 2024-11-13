@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 13 November 2024 14.22.51 UTC
-- WITA: Rabu, 13 November 2024 15.22.51 UTC
-- WIT: Rabu, 13 November 2024 16.22.51 UTC
+- WIB: Rabu, 13 November 2024 15.31.12 UTC
+- WITA: Rabu, 13 November 2024 16.31.12 UTC
+- WIT: Rabu, 13 November 2024 17.31.12 UTC
 
 Kutipan Inspiratif:
-"Human nature is potentially aggressive and destructive and potentially orderly and constructive."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: nature
+Kategori: technology
 
