@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 15 November 2024 10.02.06 UTC
-- WITA: Jumat, 15 November 2024 11.02.06 UTC
-- WIT: Jumat, 15 November 2024 12.02.06 UTC
+- WIB: Jumat, 15 November 2024 10.36.11 UTC
+- WITA: Jumat, 15 November 2024 11.36.11 UTC
+- WIT: Jumat, 15 November 2024 12.36.11 UTC
 
 Kutipan Inspiratif:
-"There is no market for YOUR EMOTIONS, so never advertise your FEELINGS just display YOUR ATTITUDE.,."
+"Two fundamentals of cool life  Walk like you are the king OR walk like you dont care ,who is the king."
 
 
 Kategori: attitude
