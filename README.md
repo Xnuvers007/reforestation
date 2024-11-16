@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 16 November 2024 06.24.05 UTC
-- WITA: Sabtu, 16 November 2024 07.24.05 UTC
-- WIT: Sabtu, 16 November 2024 08.24.05 UTC
+- WIB: Sabtu, 16 November 2024 08.54.49 UTC
+- WITA: Sabtu, 16 November 2024 09.54.49 UTC
+- WIT: Sabtu, 16 November 2024 10.54.49 UTC
 
 Kutipan Inspiratif:
-"Law is born from despair of human nature."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: nature
+Kategori: attitude
 
