@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 17 November 2024 02.19.45 UTC
-- WITA: Minggu, 17 November 2024 03.19.45 UTC
-- WIT: Minggu, 17 November 2024 04.19.45 UTC
+- WIB: Minggu, 17 November 2024 03.24.41 UTC
+- WITA: Minggu, 17 November 2024 04.24.41 UTC
+- WIT: Minggu, 17 November 2024 05.24.41 UTC
 
 Kutipan Inspiratif:
-"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
+"Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do."
 
 
-Kategori: nature
+Kategori: success
 
