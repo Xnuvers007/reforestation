@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 16 November 2024 21.24.20 UTC
-- WITA: Sabtu, 16 November 2024 22.24.20 UTC
-- WIT: Sabtu, 16 November 2024 23.24.20 UTC
+- WIB: Sabtu, 16 November 2024 22.26.17 UTC
+- WITA: Sabtu, 16 November 2024 23.26.17 UTC
+- WIT: Minggu, 17 November 2024 00.26.17 UTC
 
 Kutipan Inspiratif:
-"If you are player then Im the GAME."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: funny
+Kategori: inspirational
 
