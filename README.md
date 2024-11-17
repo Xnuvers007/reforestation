@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 18 November 2024 00.23.43 UTC
-- WITA: Senin, 18 November 2024 01.23.43 UTC
-- WIT: Senin, 18 November 2024 02.23.43 UTC
+- WIB: Senin, 18 November 2024 01.31.49 UTC
+- WITA: Senin, 18 November 2024 02.31.49 UTC
+- WIT: Senin, 18 November 2024 03.31.49 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"It's not a faith in technology. It's faith in people."
 
 
-Kategori: attitude
+Kategori: technology
 
