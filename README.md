@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 18 November 2024 11.31.18 UTC
-- WITA: Senin, 18 November 2024 12.31.18 UTC
-- WIT: Senin, 18 November 2024 13.31.18 UTC
+- WIB: Senin, 18 November 2024 12.28.13 UTC
+- WITA: Senin, 18 November 2024 13.28.13 UTC
+- WIT: Senin, 18 November 2024 14.28.13 UTC
 
 Kutipan Inspiratif:
-"Life is like a steering wheel, it only takes one small move to change your entire direction."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: motivational
+Kategori: technology
 
