@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 18 November 2024 06.24.21 UTC
-- WITA: Senin, 18 November 2024 07.24.21 UTC
-- WIT: Senin, 18 November 2024 08.24.21 UTC
+- WIB: Senin, 18 November 2024 08.59.17 UTC
+- WITA: Senin, 18 November 2024 09.59.17 UTC
+- WIT: Senin, 18 November 2024 10.59.17 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
-Kategori: inspirational
+Kategori: technology
 
