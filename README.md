@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 19 November 2024 16.27.22 UTC
-- WITA: Selasa, 19 November 2024 17.27.22 UTC
-- WIT: Selasa, 19 November 2024 18.27.22 UTC
+- WIB: Selasa, 19 November 2024 17.31.29 UTC
+- WITA: Selasa, 19 November 2024 18.31.29 UTC
+- WIT: Selasa, 19 November 2024 19.31.29 UTC
 
 Kutipan Inspiratif:
-"I have never considered a difference of opinion in politics, in religion, in philosophy, as a cause for withdrawing from a friend."
+"People say me bad, trust me i am the worst!!!"
 
 
-Kategori: friendship
+Kategori: attitude
 
