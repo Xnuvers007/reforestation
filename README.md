@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 19 November 2024 08.56.53 UTC
-- WITA: Selasa, 19 November 2024 09.56.53 UTC
-- WIT: Selasa, 19 November 2024 10.56.53 UTC
+- WIB: Selasa, 19 November 2024 10.01.34 UTC
+- WITA: Selasa, 19 November 2024 11.01.34 UTC
+- WIT: Selasa, 19 November 2024 12.01.34 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"Nobody can make you feel inferior without your consent."
 
 
-Kategori: attitude
+Kategori: motivational
 
