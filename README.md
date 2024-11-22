@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 22 November 2024 22.27.11 UTC
-- WITA: Jumat, 22 November 2024 23.27.11 UTC
-- WIT: Sabtu, 23 November 2024 00.27.11 UTC
+- WIB: Jumat, 22 November 2024 23.33.27 UTC
+- WITA: Sabtu, 23 November 2024 00.33.27 UTC
+- WIT: Sabtu, 23 November 2024 01.33.27 UTC
 
 Kutipan Inspiratif:
-"It is during our darkest moments that we must focus to see the light."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: inspirational
+Kategori: attitude
 
