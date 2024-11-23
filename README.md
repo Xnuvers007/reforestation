@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 24 November 2024 02.18.44 UTC
-- WITA: Minggu, 24 November 2024 03.18.44 UTC
-- WIT: Minggu, 24 November 2024 04.18.44 UTC
+- WIB: Minggu, 24 November 2024 03.25.20 UTC
+- WITA: Minggu, 24 November 2024 04.25.20 UTC
+- WIT: Minggu, 24 November 2024 05.25.20 UTC
 
 Kutipan Inspiratif:
-"Technology is not neutral."
+"It's not the size of the dog in the fight, but the size of the fight in the dog."
 
 
-Kategori: technology
+Kategori: motivational
 
