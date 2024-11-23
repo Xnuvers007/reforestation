@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 23 November 2024 22.24.13 UTC
-- WITA: Sabtu, 23 November 2024 23.24.13 UTC
-- WIT: Minggu, 24 November 2024 00.24.13 UTC
+- WIB: Sabtu, 23 November 2024 23.29.36 UTC
+- WITA: Minggu, 24 November 2024 00.29.36 UTC
+- WIT: Minggu, 24 November 2024 01.29.36 UTC
 
 Kutipan Inspiratif:
-"Nature is full of infinite causes that have never occurred in experience."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: nature
+Kategori: attitude
 
