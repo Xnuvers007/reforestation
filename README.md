@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 23 November 2024 20.28.41 UTC
-- WITA: Sabtu, 23 November 2024 21.28.41 UTC
-- WIT: Sabtu, 23 November 2024 22.28.41 UTC
+- WIB: Sabtu, 23 November 2024 21.24.56 UTC
+- WITA: Sabtu, 23 November 2024 22.24.56 UTC
+- WIT: Sabtu, 23 November 2024 23.24.56 UTC
 
 Kutipan Inspiratif:
-"God is really creative, I mean ...just look at me !"
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
