@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 24 November 2024 22.24.09 UTC
-- WITA: Minggu, 24 November 2024 23.24.09 UTC
-- WIT: Senin, 25 November 2024 00.24.09 UTC
+- WIB: Minggu, 24 November 2024 23.29.35 UTC
+- WITA: Senin, 25 November 2024 00.29.35 UTC
+- WIT: Senin, 25 November 2024 01.29.35 UTC
 
 Kutipan Inspiratif:
-"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
+"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
 
 
-Kategori: inspirational
+Kategori: technology
 
