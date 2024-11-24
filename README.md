@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 24 November 2024 20.27.59 UTC
-- WITA: Minggu, 24 November 2024 21.27.59 UTC
-- WIT: Minggu, 24 November 2024 22.27.59 UTC
+- WIB: Minggu, 24 November 2024 21.24.36 UTC
+- WITA: Minggu, 24 November 2024 22.24.36 UTC
+- WIT: Minggu, 24 November 2024 23.24.36 UTC
 
 Kutipan Inspiratif:
-"Success and failure are both part of life. Both are not permanent."
+"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
 
 
-Kategori: success
+Kategori: inspirational
 
