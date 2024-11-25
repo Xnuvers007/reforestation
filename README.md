@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 25 November 2024 15.33.41 UTC
-- WITA: Senin, 25 November 2024 16.33.41 UTC
-- WIT: Senin, 25 November 2024 17.33.41 UTC
+- WIB: Senin, 25 November 2024 16.28.37 UTC
+- WITA: Senin, 25 November 2024 17.28.37 UTC
+- WIT: Senin, 25 November 2024 18.28.37 UTC
 
 Kutipan Inspiratif:
-"I am not bound to win, but i am bound to be true. I am not bound to succeed, but i am bound to live up to what light i have."
+"Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success."
 
 
 Kategori: success
