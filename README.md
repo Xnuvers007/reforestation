@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 26 November 2024 19.51.54 UTC
-- WITA: Selasa, 26 November 2024 20.51.54 UTC
-- WIT: Selasa, 26 November 2024 21.51.54 UTC
+- WIB: Selasa, 26 November 2024 20.34.01 UTC
+- WITA: Selasa, 26 November 2024 21.34.01 UTC
+- WIT: Selasa, 26 November 2024 22.34.01 UTC
 
 Kutipan Inspiratif:
-"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
-Kategori: technology
+Kategori: motivational
 
