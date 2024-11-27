@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 27 November 2024 23.33.44 UTC
-- WITA: Kamis, 28 November 2024 00.33.44 UTC
-- WIT: Kamis, 28 November 2024 01.33.44 UTC
+- WIB: Kamis, 28 November 2024 00.25.40 UTC
+- WITA: Kamis, 28 November 2024 01.25.40 UTC
+- WIT: Kamis, 28 November 2024 02.25.40 UTC
 
 Kutipan Inspiratif:
-"Nobody can make you feel inferior without your consent."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: motivational
+Kategori: technology
 
