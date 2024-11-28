@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 28 November 2024 15.33.37 UTC
-- WITA: Kamis, 28 November 2024 16.33.37 UTC
-- WIT: Kamis, 28 November 2024 17.33.37 UTC
+- WIB: Kamis, 28 November 2024 16.28.34 UTC
+- WITA: Kamis, 28 November 2024 17.28.34 UTC
+- WIT: Kamis, 28 November 2024 18.28.34 UTC
 
 Kutipan Inspiratif:
-"You have eyes my dear but you cannot see."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: funny
+Kategori: attitude
 
