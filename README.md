@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 29 November 2024 23.33.03 UTC
-- WITA: Sabtu, 30 November 2024 00.33.03 UTC
-- WIT: Sabtu, 30 November 2024 01.33.03 UTC
+- WIB: Sabtu, 30 November 2024 00.25.26 UTC
+- WITA: Sabtu, 30 November 2024 01.25.26 UTC
+- WIT: Sabtu, 30 November 2024 02.25.26 UTC
 
 Kutipan Inspiratif:
-"I enjoy when people show Attitude to me because it shows that they need an Attitude to impress me!"
+"My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel--it is, before all, to make you see."
 
 
-Kategori: attitude
+Kategori: inspirational
 
