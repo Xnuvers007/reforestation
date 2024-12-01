@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 2 Desember 2024 05.26.57 UTC
-- WITA: Senin, 2 Desember 2024 06.26.57 UTC
-- WIT: Senin, 2 Desember 2024 07.26.57 UTC
+- WIB: Senin, 2 Desember 2024 06.24.19 UTC
+- WITA: Senin, 2 Desember 2024 07.24.19 UTC
+- WIT: Senin, 2 Desember 2024 08.24.19 UTC
 
 Kutipan Inspiratif:
-"Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid."
+"Xcuse me, I found something under my shoes. Oh its your attitude."
 
 
-Kategori: inspirational
+Kategori: attitude
 
