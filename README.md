@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 2 Desember 2024 13.37.20 UTC
-- WITA: Senin, 2 Desember 2024 14.37.20 UTC
-- WIT: Senin, 2 Desember 2024 15.37.20 UTC
+- WIB: Senin, 2 Desember 2024 14.27.36 UTC
+- WITA: Senin, 2 Desember 2024 15.27.36 UTC
+- WIT: Senin, 2 Desember 2024 16.27.36 UTC
 
 Kutipan Inspiratif:
-"When WORDS fail, eyes speak.When eyes fail,?HEART? speaks. When HEART fails, nothing speaks they put cotton in the nose"
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: funny
+Kategori: nature
 
