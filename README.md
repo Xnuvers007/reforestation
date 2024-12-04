@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 4 Desember 2024 21.29.22 UTC
-- WITA: Rabu, 4 Desember 2024 22.29.22 UTC
-- WIT: Rabu, 4 Desember 2024 23.29.22 UTC
+- WIB: Rabu, 4 Desember 2024 22.28.12 UTC
+- WITA: Rabu, 4 Desember 2024 23.28.12 UTC
+- WIT: Kamis, 5 Desember 2024 00.28.12 UTC
 
 Kutipan Inspiratif:
-"If we continue to develop our technology without wisdom or prudence, our servant may prove to be our executioner."
+"Xcuse me, I found something under my shoes. Oh its your attitude."
 
 
-Kategori: technology
+Kategori: attitude
 
