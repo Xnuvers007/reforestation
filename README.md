@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 5 Desember 2024 21.28.32 UTC
-- WITA: Kamis, 5 Desember 2024 22.28.32 UTC
-- WIT: Kamis, 5 Desember 2024 23.28.32 UTC
+- WIB: Kamis, 5 Desember 2024 22.29.01 UTC
+- WITA: Kamis, 5 Desember 2024 23.29.01 UTC
+- WIT: Jumat, 6 Desember 2024 00.29.01 UTC
 
 Kutipan Inspiratif:
-"If you are player then Im the GAME."
+"You create beauty with your attitude, your behaviours, and your actions. Its all up to you"
 
 
-Kategori: funny
+Kategori: attitude
 
