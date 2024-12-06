@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 6 Desember 2024 14.26.39 UTC
-- WITA: Jumat, 6 Desember 2024 15.26.39 UTC
-- WIT: Jumat, 6 Desember 2024 16.26.39 UTC
+- WIB: Jumat, 6 Desember 2024 15.32.58 UTC
+- WITA: Jumat, 6 Desember 2024 16.32.58 UTC
+- WIT: Jumat, 6 Desember 2024 17.32.58 UTC
 
 Kutipan Inspiratif:
-"Law is born from despair of human nature."
+"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
 
 
 Kategori: nature
