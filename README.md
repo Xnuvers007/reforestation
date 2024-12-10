@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 10 Desember 2024 16.28.54 UTC
-- WITA: Selasa, 10 Desember 2024 17.28.54 UTC
-- WIT: Selasa, 10 Desember 2024 18.28.54 UTC
+- WIB: Selasa, 10 Desember 2024 17.32.16 UTC
+- WITA: Selasa, 10 Desember 2024 18.32.16 UTC
+- WIT: Selasa, 10 Desember 2024 19.32.16 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do."
 
 
-Kategori: inspirational
+Kategori: success
 
