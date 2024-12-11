@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 12 Desember 2024 03.28.46 UTC
-- WITA: Kamis, 12 Desember 2024 04.28.46 UTC
-- WIT: Kamis, 12 Desember 2024 05.28.46 UTC
+- WIB: Kamis, 12 Desember 2024 04.24.35 UTC
+- WITA: Kamis, 12 Desember 2024 05.24.35 UTC
+- WIT: Kamis, 12 Desember 2024 06.24.35 UTC
 
 Kutipan Inspiratif:
-"You will never know what you are capable of until you take that first step and go for it."
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
-Kategori: motivational
+Kategori: technology
 
