@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 13 Desember 2024 13.36.32 UTC
-- WITA: Jumat, 13 Desember 2024 14.36.32 UTC
-- WIT: Jumat, 13 Desember 2024 15.36.32 UTC
+- WIB: Jumat, 13 Desember 2024 14.25.22 UTC
+- WITA: Jumat, 13 Desember 2024 15.25.22 UTC
+- WIT: Jumat, 13 Desember 2024 16.25.22 UTC
 
 Kutipan Inspiratif:
-"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
+"There is no market for YOUR EMOTIONS, so never advertise your FEELINGS just display YOUR ATTITUDE.,."
 
 
-Kategori: inspirational
+Kategori: attitude
 
