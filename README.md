@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 14 Desember 2024 00.26.05 UTC
-- WITA: Sabtu, 14 Desember 2024 01.26.05 UTC
-- WIT: Sabtu, 14 Desember 2024 02.26.05 UTC
+- WIB: Sabtu, 14 Desember 2024 01.35.24 UTC
+- WITA: Sabtu, 14 Desember 2024 02.35.24 UTC
+- WIT: Sabtu, 14 Desember 2024 03.35.24 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
 
 
-Kategori: inspirational
+Kategori: nature
 
