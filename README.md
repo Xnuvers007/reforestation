@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 16 Desember 2024 11.32.09 UTC
-- WITA: Senin, 16 Desember 2024 12.32.09 UTC
-- WIT: Senin, 16 Desember 2024 13.32.09 UTC
+- WIB: Senin, 16 Desember 2024 12.28.55 UTC
+- WITA: Senin, 16 Desember 2024 13.28.55 UTC
+- WIT: Senin, 16 Desember 2024 14.28.55 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"You will never know what you are capable of until you take that first step and go for it."
 
 
-Kategori: inspirational
+Kategori: motivational
 
