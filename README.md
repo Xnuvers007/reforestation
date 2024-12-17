@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 17 Desember 2024 21.28.54 UTC
-- WITA: Selasa, 17 Desember 2024 22.28.54 UTC
-- WIT: Selasa, 17 Desember 2024 23.28.54 UTC
+- WIB: Selasa, 17 Desember 2024 22.28.37 UTC
+- WITA: Selasa, 17 Desember 2024 23.28.37 UTC
+- WIT: Rabu, 18 Desember 2024 00.28.37 UTC
 
 Kutipan Inspiratif:
-"May my enemies live a long life to see my success."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: attitude
+Kategori: technology
 
