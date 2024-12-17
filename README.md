@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 18 Desember 2024 03.27.16 UTC
-- WITA: Rabu, 18 Desember 2024 04.27.16 UTC
-- WIT: Rabu, 18 Desember 2024 05.27.16 UTC
+- WIB: Rabu, 18 Desember 2024 04.22.13 UTC
+- WITA: Rabu, 18 Desember 2024 05.22.13 UTC
+- WIT: Rabu, 18 Desember 2024 06.22.13 UTC
 
 Kutipan Inspiratif:
-"Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: inspirational
+Kategori: motivational
 
