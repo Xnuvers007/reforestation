@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 19 Desember 2024 05.27.30 UTC
-- WITA: Kamis, 19 Desember 2024 06.27.30 UTC
-- WIT: Kamis, 19 Desember 2024 07.27.30 UTC
+- WIB: Kamis, 19 Desember 2024 06.24.07 UTC
+- WITA: Kamis, 19 Desember 2024 07.24.07 UTC
+- WIT: Kamis, 19 Desember 2024 08.24.07 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
