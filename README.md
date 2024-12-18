@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 18 Desember 2024 10.36.00 UTC
-- WITA: Rabu, 18 Desember 2024 11.36.00 UTC
-- WIT: Rabu, 18 Desember 2024 12.36.00 UTC
+- WIB: Rabu, 18 Desember 2024 11.30.09 UTC
+- WITA: Rabu, 18 Desember 2024 12.30.09 UTC
+- WIT: Rabu, 18 Desember 2024 13.30.09 UTC
 
 Kutipan Inspiratif:
-"Just saw the most smartest person when i was in front of the mirror"
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: funny
+Kategori: attitude
 
