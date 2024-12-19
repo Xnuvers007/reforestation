@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 19 Desember 2024 13.35.33 UTC
-- WITA: Kamis, 19 Desember 2024 14.35.33 UTC
-- WIT: Kamis, 19 Desember 2024 15.35.33 UTC
+- WIB: Kamis, 19 Desember 2024 14.24.42 UTC
+- WITA: Kamis, 19 Desember 2024 15.24.42 UTC
+- WIT: Kamis, 19 Desember 2024 16.24.42 UTC
 
 Kutipan Inspiratif:
-"My task, which I am trying to achieve is, by the power of the written word, to make you hear, to make you feel--it is, before all, to make you see."
+"Xcuse me, I found something under my shoes. Oh its your attitude."
 
 
-Kategori: inspirational
+Kategori: attitude
 
