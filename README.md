@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 21 Desember 2024 10.27.32 UTC
-- WITA: Sabtu, 21 Desember 2024 11.27.32 UTC
-- WIT: Sabtu, 21 Desember 2024 12.27.32 UTC
+- WIB: Sabtu, 21 Desember 2024 11.28.17 UTC
+- WITA: Sabtu, 21 Desember 2024 12.28.17 UTC
+- WIT: Sabtu, 21 Desember 2024 13.28.17 UTC
 
 Kutipan Inspiratif:
-"Success depends upon previous preparation, and without such preparation there is sure to be failure."
+"I quit being afraid when my first venture failed and the sky didn't fall down."
 
 
-Kategori: success
+Kategori: motivational
 
