@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 24 Desember 2024 06.22.43 UTC
-- WITA: Selasa, 24 Desember 2024 07.22.43 UTC
-- WIT: Selasa, 24 Desember 2024 08.22.43 UTC
+- WIB: Selasa, 24 Desember 2024 08.51.11 UTC
+- WITA: Selasa, 24 Desember 2024 09.51.11 UTC
+- WIT: Selasa, 24 Desember 2024 10.51.11 UTC
 
 Kutipan Inspiratif:
-"It took me a long time not to judge myself through someone else's eyes"
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: motivational
+Kategori: technology
 
