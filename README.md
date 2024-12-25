@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 25 Desember 2024 20.27.17 UTC
-- WITA: Rabu, 25 Desember 2024 21.27.17 UTC
-- WIT: Rabu, 25 Desember 2024 22.27.17 UTC
+- WIB: Rabu, 25 Desember 2024 21.24.11 UTC
+- WITA: Rabu, 25 Desember 2024 22.24.11 UTC
+- WIT: Rabu, 25 Desember 2024 23.24.11 UTC
 
 Kutipan Inspiratif:
-"Our technological powers increase, but the side effects and potential hazards also escalate."
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
 Kategori: technology
