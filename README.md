@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 26 Desember 2024 23.29.53 UTC
-- WITA: Jumat, 27 Desember 2024 00.29.53 UTC
-- WIT: Jumat, 27 Desember 2024 01.29.53 UTC
+- WIB: Jumat, 27 Desember 2024 00.23.02 UTC
+- WITA: Jumat, 27 Desember 2024 01.23.02 UTC
+- WIT: Jumat, 27 Desember 2024 02.23.02 UTC
 
 Kutipan Inspiratif:
-"Prosperity makes friends, adversity tries them."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
-Kategori: success
+Kategori: inspirational
 
