@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 28 Desember 2024 14.21.11 UTC
-- WITA: Sabtu, 28 Desember 2024 15.21.11 UTC
-- WIT: Sabtu, 28 Desember 2024 16.21.11 UTC
+- WIB: Sabtu, 28 Desember 2024 15.28.15 UTC
+- WITA: Sabtu, 28 Desember 2024 16.28.15 UTC
+- WIT: Sabtu, 28 Desember 2024 17.28.15 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"Stop checking my status ! Go Get A Life "
 
 
-Kategori: inspirational
+Kategori: attitude
 
