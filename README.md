@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 29 Desember 2024 14.21.26 UTC
-- WITA: Minggu, 29 Desember 2024 15.21.26 UTC
-- WIT: Minggu, 29 Desember 2024 16.21.26 UTC
+- WIB: Minggu, 29 Desember 2024 15.28.28 UTC
+- WITA: Minggu, 29 Desember 2024 16.28.28 UTC
+- WIT: Minggu, 29 Desember 2024 17.28.28 UTC
 
 Kutipan Inspiratif:
-"Strategy is a style of thinking, a conscious and deliberate process, an intensive implementation system, the science of insuring future success."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: success
+Kategori: technology
 
