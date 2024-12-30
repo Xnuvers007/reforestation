@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 31 Desember 2024 01.32.27 UTC
-- WITA: Selasa, 31 Desember 2024 02.32.27 UTC
-- WIT: Selasa, 31 Desember 2024 03.32.27 UTC
+- WIB: Selasa, 31 Desember 2024 02.18.48 UTC
+- WITA: Selasa, 31 Desember 2024 03.18.48 UTC
+- WIT: Selasa, 31 Desember 2024 04.18.48 UTC
 
 Kutipan Inspiratif:
-"Self-preservation is the first law of nature."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: nature
+Kategori: attitude
 
