@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 31 Desember 2024 18.19.47 UTC
-- WITA: Selasa, 31 Desember 2024 19.19.47 UTC
-- WIT: Selasa, 31 Desember 2024 20.19.47 UTC
+- WIB: Selasa, 31 Desember 2024 19.46.52 UTC
+- WITA: Selasa, 31 Desember 2024 20.46.52 UTC
+- WIT: Selasa, 31 Desember 2024 21.46.52 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"For greed all nature is too little."
 
 
-Kategori: attitude
+Kategori: nature
 
