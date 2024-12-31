@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 31 Desember 2024 17.27.56 UTC
-- WITA: Selasa, 31 Desember 2024 18.27.56 UTC
-- WIT: Selasa, 31 Desember 2024 19.27.56 UTC
+- WIB: Selasa, 31 Desember 2024 18.19.47 UTC
+- WITA: Selasa, 31 Desember 2024 19.19.47 UTC
+- WIT: Selasa, 31 Desember 2024 20.19.47 UTC
 
 Kutipan Inspiratif:
-"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: technology
+Kategori: attitude
 
