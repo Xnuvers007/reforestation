@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 2 Januari 2025 10.29.03 UTC
-- WITA: Kamis, 2 Januari 2025 11.29.03 UTC
-- WIT: Kamis, 2 Januari 2025 12.29.03 UTC
+- WIB: Kamis, 2 Januari 2025 11.29.05 UTC
+- WITA: Kamis, 2 Januari 2025 12.29.05 UTC
+- WIT: Kamis, 2 Januari 2025 13.29.05 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"It's not a faith in technology. It's faith in people."
 
 
-Kategori: attitude
+Kategori: technology
 
