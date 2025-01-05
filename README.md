@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 6 Januari 2025 04.21.37 UTC
-- WITA: Senin, 6 Januari 2025 05.21.37 UTC
-- WIT: Senin, 6 Januari 2025 06.21.37 UTC
+- WIB: Senin, 6 Januari 2025 05.24.32 UTC
+- WITA: Senin, 6 Januari 2025 06.24.32 UTC
+- WIT: Senin, 6 Januari 2025 07.24.32 UTC
 
 Kutipan Inspiratif:
-"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: technology
+Kategori: attitude
 
