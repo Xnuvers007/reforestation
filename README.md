@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 6 Januari 2025 03.24.09 UTC
-- WITA: Senin, 6 Januari 2025 04.24.09 UTC
-- WIT: Senin, 6 Januari 2025 05.24.09 UTC
+- WIB: Senin, 6 Januari 2025 04.21.37 UTC
+- WITA: Senin, 6 Januari 2025 05.21.37 UTC
+- WIT: Senin, 6 Januari 2025 06.21.37 UTC
 
 Kutipan Inspiratif:
-"Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: inspirational
+Kategori: technology
 
