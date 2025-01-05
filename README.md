@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 6 Januari 2025 05.24.32 UTC
-- WITA: Senin, 6 Januari 2025 06.24.32 UTC
-- WIT: Senin, 6 Januari 2025 07.24.32 UTC
+- WIB: Senin, 6 Januari 2025 06.22.12 UTC
+- WITA: Senin, 6 Januari 2025 07.22.12 UTC
+- WIT: Senin, 6 Januari 2025 08.22.12 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"If you work just for money, you'll never make it, but if you love what you're doing and you always put the customer first, success will be yours."
 
 
-Kategori: attitude
+Kategori: success
 
