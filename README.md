@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 9 Januari 2025 22.26.13 UTC
-- WITA: Kamis, 9 Januari 2025 23.26.13 UTC
-- WIT: Jumat, 10 Januari 2025 00.26.13 UTC
+- WIB: Kamis, 9 Januari 2025 23.31.30 UTC
+- WITA: Jumat, 10 Januari 2025 00.31.30 UTC
+- WIT: Jumat, 10 Januari 2025 01.31.30 UTC
 
 Kutipan Inspiratif:
-"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
+"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
 
 
-Kategori: inspirational
+Kategori: technology
 
