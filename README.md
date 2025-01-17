@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 17 Januari 2025 16.24.46 UTC
-- WITA: Jumat, 17 Januari 2025 17.24.46 UTC
-- WIT: Jumat, 17 Januari 2025 18.24.46 UTC
+- WIB: Jumat, 17 Januari 2025 17.27.26 UTC
+- WITA: Jumat, 17 Januari 2025 18.27.26 UTC
+- WIT: Jumat, 17 Januari 2025 19.27.26 UTC
 
 Kutipan Inspiratif:
-"Technology is a useful servant but a dangerous master."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: technology
+Kategori: attitude
 
