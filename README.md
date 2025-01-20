@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 20 Januari 2025 23.29.59 UTC
-- WITA: Selasa, 21 Januari 2025 00.29.59 UTC
-- WIT: Selasa, 21 Januari 2025 01.29.59 UTC
+- WIB: Selasa, 21 Januari 2025 00.22.45 UTC
+- WITA: Selasa, 21 Januari 2025 01.22.45 UTC
+- WIT: Selasa, 21 Januari 2025 02.22.45 UTC
 
 Kutipan Inspiratif:
-"Successful people are not gifted; they just work hard, then succeed on purpose."
+"Nobody can make you feel inferior without your consent."
 
 
-Kategori: success
+Kategori: motivational
 
