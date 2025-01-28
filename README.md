@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 28 Januari 2025 13.32.33 UTC
-- WITA: Selasa, 28 Januari 2025 14.32.33 UTC
-- WIT: Selasa, 28 Januari 2025 15.32.33 UTC
+- WIB: Selasa, 28 Januari 2025 14.22.09 UTC
+- WITA: Selasa, 28 Januari 2025 15.22.09 UTC
+- WIT: Selasa, 28 Januari 2025 16.22.09 UTC
 
 Kutipan Inspiratif:
-"At the end of the day, the most overwhelming key to a child's success is the positive involvement of parents."
+"You create beauty with your attitude, your behaviours, and your actions. Its all up to you"
 
 
-Kategori: success
+Kategori: attitude
 
