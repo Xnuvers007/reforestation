@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 3 Februari 2025 17.28.03 UTC
-- WITA: Senin, 3 Februari 2025 18.28.03 UTC
-- WIT: Senin, 3 Februari 2025 19.28.03 UTC
+- WIB: Senin, 3 Februari 2025 18.19.36 UTC
+- WITA: Senin, 3 Februari 2025 19.19.36 UTC
+- WIT: Senin, 3 Februari 2025 20.19.36 UTC
 
 Kutipan Inspiratif:
-"It's not the size of the dog in the fight, but the size of the fight in the dog."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: motivational
+Kategori: inspirational
 
