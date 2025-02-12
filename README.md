@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 13 Februari 2025 03.26.19 UTC
-- WITA: Kamis, 13 Februari 2025 04.26.19 UTC
-- WIT: Kamis, 13 Februari 2025 05.26.19 UTC
+- WIB: Kamis, 13 Februari 2025 04.22.50 UTC
+- WITA: Kamis, 13 Februari 2025 05.22.50 UTC
+- WIT: Kamis, 13 Februari 2025 06.22.50 UTC
 
 Kutipan Inspiratif:
-"I am who I am, Your approval is not needed"
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: attitude
+Kategori: technology
 
