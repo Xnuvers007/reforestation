@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 14 Februari 2025 03.26.00 UTC
-- WITA: Jumat, 14 Februari 2025 04.26.00 UTC
-- WIT: Jumat, 14 Februari 2025 05.26.00 UTC
+- WIB: Jumat, 14 Februari 2025 04.23.00 UTC
+- WITA: Jumat, 14 Februari 2025 05.23.00 UTC
+- WIT: Jumat, 14 Februari 2025 06.23.00 UTC
 
 Kutipan Inspiratif:
-"A poor man says work is life. A rich man says money is life. A lover says love is life but. I say my idiot friends are my life."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: friendship
+Kategori: attitude
 
