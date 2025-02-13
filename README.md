@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 14 Februari 2025 04.23.00 UTC
-- WITA: Jumat, 14 Februari 2025 05.23.00 UTC
-- WIT: Jumat, 14 Februari 2025 06.23.00 UTC
+- WIB: Jumat, 14 Februari 2025 05.25.43 UTC
+- WITA: Jumat, 14 Februari 2025 06.25.43 UTC
+- WIT: Jumat, 14 Februari 2025 07.25.43 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
 
 
-Kategori: attitude
+Kategori: technology
 
