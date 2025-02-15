@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 16 Februari 2025 01.29.37 UTC
-- WITA: Minggu, 16 Februari 2025 02.29.37 UTC
-- WIT: Minggu, 16 Februari 2025 03.29.37 UTC
+- WIB: Minggu, 16 Februari 2025 02.19.13 UTC
+- WITA: Minggu, 16 Februari 2025 03.19.13 UTC
+- WIT: Minggu, 16 Februari 2025 04.19.13 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
 
 
-Kategori: inspirational
+Kategori: nature
 
