@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 17 Februari 2025 04.22.29 UTC
-- WITA: Senin, 17 Februari 2025 05.22.29 UTC
-- WIT: Senin, 17 Februari 2025 06.22.29 UTC
+- WIB: Senin, 17 Februari 2025 05.24.20 UTC
+- WITA: Senin, 17 Februari 2025 06.24.20 UTC
+- WIT: Senin, 17 Februari 2025 07.24.20 UTC
 
 Kutipan Inspiratif:
-"Two fundamentals of cool life  Walk like you are the king OR walk like you dont care ,who is the king."
+"Success depends upon previous preparation, and without such preparation there is sure to be failure."
 
 
-Kategori: attitude
+Kategori: success
 
