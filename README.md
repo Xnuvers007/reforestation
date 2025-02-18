@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 18 Februari 2025 16.25.56 UTC
-- WITA: Selasa, 18 Februari 2025 17.25.56 UTC
-- WIT: Selasa, 18 Februari 2025 18.25.56 UTC
+- WIB: Selasa, 18 Februari 2025 17.29.13 UTC
+- WITA: Selasa, 18 Februari 2025 18.29.13 UTC
+- WIT: Selasa, 18 Februari 2025 19.29.13 UTC
 
 Kutipan Inspiratif:
-"Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success."
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
-Kategori: success
+Kategori: motivational
 
