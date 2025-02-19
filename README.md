@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 19 Februari 2025 06.22.42 UTC
-- WITA: Rabu, 19 Februari 2025 07.22.42 UTC
-- WIT: Rabu, 19 Februari 2025 08.22.42 UTC
+- WIB: Rabu, 19 Februari 2025 08.51.39 UTC
+- WITA: Rabu, 19 Februari 2025 09.51.39 UTC
+- WIT: Rabu, 19 Februari 2025 10.51.39 UTC
 
 Kutipan Inspiratif:
-"Technology is a useful servant but a dangerous master."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
 Kategori: technology
