@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 21 Februari 2025 20.28.15 UTC
-- WITA: Jumat, 21 Februari 2025 21.28.15 UTC
-- WIT: Jumat, 21 Februari 2025 22.28.15 UTC
+- WIB: Jumat, 21 Februari 2025 21.24.47 UTC
+- WITA: Jumat, 21 Februari 2025 22.24.47 UTC
+- WIT: Jumat, 21 Februari 2025 23.24.47 UTC
 
 Kutipan Inspiratif:
-"She is a friend of my mind. She gather me, man. The pieces I am, she gather them and give them back to me in all the right order."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: friendship
+Kategori: motivational
 
