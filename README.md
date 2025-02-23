@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 24 Februari 2025 02.17.59 UTC
-- WITA: Senin, 24 Februari 2025 03.17.59 UTC
-- WIT: Senin, 24 Februari 2025 04.17.59 UTC
+- WIB: Senin, 24 Februari 2025 03.24.38 UTC
+- WITA: Senin, 24 Februari 2025 04.24.38 UTC
+- WIT: Senin, 24 Februari 2025 05.24.38 UTC
 
 Kutipan Inspiratif:
-"Get your facts first, then you can distort them as you please."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: funny
+Kategori: inspirational
 
