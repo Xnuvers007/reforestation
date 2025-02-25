@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 25 Februari 2025 15.31.49 UTC
-- WITA: Selasa, 25 Februari 2025 16.31.49 UTC
-- WIT: Selasa, 25 Februari 2025 17.31.49 UTC
+- WIB: Selasa, 25 Februari 2025 16.26.51 UTC
+- WITA: Selasa, 25 Februari 2025 17.26.51 UTC
+- WIT: Selasa, 25 Februari 2025 18.26.51 UTC
 
 Kutipan Inspiratif:
-"Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: inspirational
+Kategori: attitude
 
