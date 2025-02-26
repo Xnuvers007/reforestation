@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 27 Februari 2025 03.27.02 UTC
-- WITA: Kamis, 27 Februari 2025 04.27.02 UTC
-- WIT: Kamis, 27 Februari 2025 05.27.02 UTC
+- WIB: Kamis, 27 Februari 2025 04.23.33 UTC
+- WITA: Kamis, 27 Februari 2025 05.23.33 UTC
+- WIT: Kamis, 27 Februari 2025 06.23.33 UTC
 
 Kutipan Inspiratif:
-"Xcuse me, I found something under my shoes. Oh its your attitude."
+"i am what i am.. i will never try to be some one else."
 
 
 Kategori: attitude
