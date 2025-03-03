@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 3 Maret 2025 11.31.07 UTC
-- WITA: Senin, 3 Maret 2025 12.31.07 UTC
-- WIT: Senin, 3 Maret 2025 13.31.07 UTC
+- WIB: Senin, 3 Maret 2025 12.27.43 UTC
+- WITA: Senin, 3 Maret 2025 13.27.43 UTC
+- WIT: Senin, 3 Maret 2025 14.27.43 UTC
 
 Kutipan Inspiratif:
-"i am what i am.. i will never try to be some one else."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: attitude
+Kategori: technology
 
