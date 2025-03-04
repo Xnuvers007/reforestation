@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 4 Maret 2025 15.30.53 UTC
-- WITA: Selasa, 4 Maret 2025 16.30.53 UTC
-- WIT: Selasa, 4 Maret 2025 17.30.53 UTC
+- WIB: Selasa, 4 Maret 2025 16.26.59 UTC
+- WITA: Selasa, 4 Maret 2025 17.26.59 UTC
+- WIT: Selasa, 4 Maret 2025 18.26.59 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"I quit being afraid when my first venture failed and the sky didn't fall down."
 
 
-Kategori: attitude
+Kategori: motivational
 
