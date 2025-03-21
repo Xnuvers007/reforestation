@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 21 Maret 2025 16.27.02 UTC
-- WITA: Jumat, 21 Maret 2025 17.27.02 UTC
-- WIT: Jumat, 21 Maret 2025 18.27.02 UTC
+- WIB: Jumat, 21 Maret 2025 17.29.55 UTC
+- WITA: Jumat, 21 Maret 2025 18.29.55 UTC
+- WIT: Jumat, 21 Maret 2025 19.29.55 UTC
 
 Kutipan Inspiratif:
-"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
 Kategori: technology
