@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 29 Maret 2025 22.25.33 UTC
-- WITA: Sabtu, 29 Maret 2025 23.25.33 UTC
-- WIT: Minggu, 30 Maret 2025 00.25.33 UTC
+- WIB: Sabtu, 29 Maret 2025 23.31.49 UTC
+- WITA: Minggu, 30 Maret 2025 00.31.49 UTC
+- WIT: Minggu, 30 Maret 2025 01.31.49 UTC
 
 Kutipan Inspiratif:
-"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
+"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
 
 
-Kategori: inspirational
+Kategori: motivational
 
