@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 3 April 2025 21.28.36 UTC
-- WITA: Kamis, 3 April 2025 22.28.36 UTC
-- WIT: Kamis, 3 April 2025 23.28.36 UTC
+- WIB: Kamis, 3 April 2025 22.26.31 UTC
+- WITA: Kamis, 3 April 2025 23.26.31 UTC
+- WIT: Jumat, 4 April 2025 00.26.31 UTC
 
 Kutipan Inspiratif:
-"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
+"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
 
 
-Kategori: motivational
+Kategori: nature
 
