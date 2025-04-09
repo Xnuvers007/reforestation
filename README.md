@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 10 April 2025 03.27.34 UTC
-- WITA: Kamis, 10 April 2025 04.27.34 UTC
-- WIT: Kamis, 10 April 2025 05.27.34 UTC
+- WIB: Kamis, 10 April 2025 04.23.06 UTC
+- WITA: Kamis, 10 April 2025 05.23.06 UTC
+- WIT: Kamis, 10 April 2025 06.23.06 UTC
 
 Kutipan Inspiratif:
-"Take chances, make mistakes. That's how you grow. Pain nourishes your courage. You have to fail in order to practice being brave."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
 Kategori: motivational
