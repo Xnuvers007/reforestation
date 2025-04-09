@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 9 April 2025 15.36.24 UTC
-- WITA: Rabu, 9 April 2025 16.36.24 UTC
-- WIT: Rabu, 9 April 2025 17.36.24 UTC
+- WIB: Rabu, 9 April 2025 16.30.07 UTC
+- WITA: Rabu, 9 April 2025 17.30.07 UTC
+- WIT: Rabu, 9 April 2025 18.30.07 UTC
 
 Kutipan Inspiratif:
-"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
-Kategori: nature
+Kategori: technology
 
