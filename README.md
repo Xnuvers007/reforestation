@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 17 April 2025 12.29.00 UTC
-- WITA: Kamis, 17 April 2025 13.29.00 UTC
-- WIT: Kamis, 17 April 2025 14.29.00 UTC
+- WIB: Kamis, 17 April 2025 13.36.56 UTC
+- WITA: Kamis, 17 April 2025 14.36.56 UTC
+- WIT: Kamis, 17 April 2025 15.36.56 UTC
 
 Kutipan Inspiratif:
-"True friends are never apart. Maybe in distance, but not in heart."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: friendship
+Kategori: attitude
 
