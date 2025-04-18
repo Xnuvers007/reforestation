@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 18 April 2025 17.31.59 UTC
-- WITA: Jumat, 18 April 2025 18.31.59 UTC
-- WIT: Jumat, 18 April 2025 19.31.59 UTC
+- WIB: Jumat, 18 April 2025 18.21.52 UTC
+- WITA: Jumat, 18 April 2025 19.21.52 UTC
+- WIT: Jumat, 18 April 2025 20.21.52 UTC
 
 Kutipan Inspiratif:
-"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
+"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
 
 
-Kategori: nature
+Kategori: motivational
 
