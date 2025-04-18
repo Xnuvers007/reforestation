@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 18 April 2025 18.21.52 UTC
-- WITA: Jumat, 18 April 2025 19.21.52 UTC
-- WIT: Jumat, 18 April 2025 20.21.52 UTC
+- WIB: Jumat, 18 April 2025 19.51.04 UTC
+- WITA: Jumat, 18 April 2025 20.51.04 UTC
+- WIT: Jumat, 18 April 2025 21.51.04 UTC
 
 Kutipan Inspiratif:
-"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
-Kategori: motivational
+Kategori: technology
 
