@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 28 April 2025 22.29.42 UTC
-- WITA: Senin, 28 April 2025 23.29.42 UTC
-- WIT: Selasa, 29 April 2025 00.29.42 UTC
+- WIB: Senin, 28 April 2025 23.33.19 UTC
+- WITA: Selasa, 29 April 2025 00.33.19 UTC
+- WIT: Selasa, 29 April 2025 01.33.19 UTC
 
 Kutipan Inspiratif:
-"I failed in some subjects in exam, but my friend passed in all. Now he is an engineer in microsoft and i am the owner of microsoft."
+"The size of your problems is nothing compared with your ability to solve them. Dont overestimate your problems and underestimate yourself."
 
 
-Kategori: inspirational
+Kategori: motivational
 
