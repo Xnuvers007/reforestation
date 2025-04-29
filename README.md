@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 29 April 2025 09.04.53 UTC
-- WITA: Selasa, 29 April 2025 10.04.53 UTC
-- WIT: Selasa, 29 April 2025 11.04.53 UTC
+- WIB: Selasa, 29 April 2025 10.11.14 UTC
+- WITA: Selasa, 29 April 2025 11.11.14 UTC
+- WIT: Selasa, 29 April 2025 12.11.14 UTC
 
 Kutipan Inspiratif:
-"Two fundamentals of cool life  Walk like you are the king OR walk like you dont care ,who is the king."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: attitude
+Kategori: inspirational
 
