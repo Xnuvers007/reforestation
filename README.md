@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 30 April 2025 09.04.26 UTC
-- WITA: Rabu, 30 April 2025 10.04.26 UTC
-- WIT: Rabu, 30 April 2025 11.04.26 UTC
+- WIB: Rabu, 30 April 2025 10.11.09 UTC
+- WITA: Rabu, 30 April 2025 11.11.09 UTC
+- WIT: Rabu, 30 April 2025 12.11.09 UTC
 
 Kutipan Inspiratif:
-"The further you get into technology, the further you go into gaming. That's the general rule."
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
-Kategori: technology
+Kategori: motivational
 
