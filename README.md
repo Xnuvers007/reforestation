@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 1 Mei 2025 17.31.52 UTC
-- WITA: Kamis, 1 Mei 2025 18.31.52 UTC
-- WIT: Kamis, 1 Mei 2025 19.31.52 UTC
+- WIB: Kamis, 1 Mei 2025 18.22.27 UTC
+- WITA: Kamis, 1 Mei 2025 19.22.27 UTC
+- WIT: Kamis, 1 Mei 2025 20.22.27 UTC
 
 Kutipan Inspiratif:
-"Take chances, make mistakes. That's how you grow. Pain nourishes your courage. You have to fail in order to practice being brave."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: motivational
+Kategori: attitude
 
