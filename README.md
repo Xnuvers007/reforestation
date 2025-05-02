@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 2 Mei 2025 20.34.32 UTC
-- WITA: Jumat, 2 Mei 2025 21.34.32 UTC
-- WIT: Jumat, 2 Mei 2025 22.34.32 UTC
+- WIB: Jumat, 2 Mei 2025 21.28.36 UTC
+- WITA: Jumat, 2 Mei 2025 22.28.36 UTC
+- WIT: Jumat, 2 Mei 2025 23.28.36 UTC
 
 Kutipan Inspiratif:
-"May my enemies live a long life to see my success."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
-Kategori: attitude
+Kategori: inspirational
 
