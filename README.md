@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 3 Mei 2025 20.30.33 UTC
-- WITA: Sabtu, 3 Mei 2025 21.30.33 UTC
-- WIT: Sabtu, 3 Mei 2025 22.30.33 UTC
+- WIB: Sabtu, 3 Mei 2025 21.26.06 UTC
+- WITA: Sabtu, 3 Mei 2025 22.26.06 UTC
+- WIT: Sabtu, 3 Mei 2025 23.26.06 UTC
 
 Kutipan Inspiratif:
-"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
+"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
 
 
 Kategori: motivational
