@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 7 Mei 2025 01.36.14 UTC
-- WITA: Rabu, 7 Mei 2025 02.36.14 UTC
-- WIT: Rabu, 7 Mei 2025 03.36.14 UTC
+- WIB: Rabu, 7 Mei 2025 02.21.04 UTC
+- WITA: Rabu, 7 Mei 2025 03.21.04 UTC
+- WIT: Rabu, 7 Mei 2025 04.21.04 UTC
 
 Kutipan Inspiratif:
-"Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success."
+"The technology of the time dictated the way things looked."
 
 
-Kategori: success
+Kategori: technology
 
