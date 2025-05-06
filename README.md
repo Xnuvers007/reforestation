@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 7 Mei 2025 02.21.04 UTC
-- WITA: Rabu, 7 Mei 2025 03.21.04 UTC
-- WIT: Rabu, 7 Mei 2025 04.21.04 UTC
+- WIB: Rabu, 7 Mei 2025 03.29.48 UTC
+- WITA: Rabu, 7 Mei 2025 04.29.48 UTC
+- WIT: Rabu, 7 Mei 2025 05.29.48 UTC
 
 Kutipan Inspiratif:
-"The technology of the time dictated the way things looked."
+"People say me bad, trust me i am the worst!!!"
 
 
-Kategori: technology
+Kategori: attitude
 
