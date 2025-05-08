@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 8 Mei 2025 12.30.01 UTC
-- WITA: Kamis, 8 Mei 2025 13.30.01 UTC
-- WIT: Kamis, 8 Mei 2025 14.30.01 UTC
+- WIB: Kamis, 8 Mei 2025 13.38.40 UTC
+- WITA: Kamis, 8 Mei 2025 14.38.40 UTC
+- WIT: Kamis, 8 Mei 2025 15.38.40 UTC
 
 Kutipan Inspiratif:
-"Success is only meaningful and enjoyable if it feels like your own."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: success
+Kategori: motivational
 
