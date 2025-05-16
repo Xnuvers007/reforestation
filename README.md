@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 16 Mei 2025 15.35.55 UTC
-- WITA: Jumat, 16 Mei 2025 16.35.55 UTC
-- WIT: Jumat, 16 Mei 2025 17.35.55 UTC
+- WIB: Jumat, 16 Mei 2025 16.29.23 UTC
+- WITA: Jumat, 16 Mei 2025 17.29.23 UTC
+- WIT: Jumat, 16 Mei 2025 18.29.23 UTC
 
 Kutipan Inspiratif:
-"Full form of study - S-T-U-D-Y = [S]inging, [T]weeting, [U]nlimited Texting, [D]reaming, [Y]awning."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: funny
+Kategori: attitude
 
