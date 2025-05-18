@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 18 Mei 2025 13.36.43 UTC
-- WITA: Minggu, 18 Mei 2025 14.36.43 UTC
-- WIT: Minggu, 18 Mei 2025 15.36.43 UTC
+- WIB: Minggu, 18 Mei 2025 14.23.48 UTC
+- WITA: Minggu, 18 Mei 2025 15.23.48 UTC
+- WIT: Minggu, 18 Mei 2025 16.23.48 UTC
 
 Kutipan Inspiratif:
-"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
-Kategori: inspirational
+Kategori: technology
 
