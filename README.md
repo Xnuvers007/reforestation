@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 18 Mei 2025 21.26.02 UTC
-- WITA: Minggu, 18 Mei 2025 22.26.02 UTC
-- WIT: Minggu, 18 Mei 2025 23.26.02 UTC
+- WIB: Minggu, 18 Mei 2025 22.25.32 UTC
+- WITA: Minggu, 18 Mei 2025 23.25.32 UTC
+- WIT: Senin, 19 Mei 2025 00.25.32 UTC
 
 Kutipan Inspiratif:
-"It took me a long time not to judge myself through someone else's eyes"
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: motivational
+Kategori: technology
 
