@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 29 Mei 2025 09.09.03 UTC
-- WITA: Kamis, 29 Mei 2025 10.09.03 UTC
-- WIT: Kamis, 29 Mei 2025 11.09.03 UTC
+- WIB: Kamis, 29 Mei 2025 10.49.42 UTC
+- WITA: Kamis, 29 Mei 2025 11.49.42 UTC
+- WIT: Kamis, 29 Mei 2025 12.49.42 UTC
 
 Kutipan Inspiratif:
-"There are three principal means of acquiring knowledge... observation of nature, reflection, and experimentation. Observation collects facts; reflection combines them; experimentation verifies the result of that combination."
+"Technology is not neutral."
 
 
-Kategori: nature
+Kategori: technology
 
