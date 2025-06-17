@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 17 Juni 2025 19.58.07 UTC
-- WITA: Selasa, 17 Juni 2025 20.58.07 UTC
-- WIT: Selasa, 17 Juni 2025 21.58.07 UTC
+- WIB: Selasa, 17 Juni 2025 20.39.09 UTC
+- WITA: Selasa, 17 Juni 2025 21.39.09 UTC
+- WIT: Selasa, 17 Juni 2025 22.39.09 UTC
 
 Kutipan Inspiratif:
-"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: technology
+Kategori: attitude
 
