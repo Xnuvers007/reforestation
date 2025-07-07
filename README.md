@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 8 Juli 2025 04.26.16 UTC
-- WITA: Selasa, 8 Juli 2025 05.26.16 UTC
-- WIT: Selasa, 8 Juli 2025 06.26.16 UTC
+- WIB: Selasa, 8 Juli 2025 05.30.20 UTC
+- WITA: Selasa, 8 Juli 2025 06.30.20 UTC
+- WIT: Selasa, 8 Juli 2025 07.30.20 UTC
 
 Kutipan Inspiratif:
-"Successful people are not gifted; they just work hard, then succeed on purpose."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: success
+Kategori: motivational
 
