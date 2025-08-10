@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 11 Agustus 2025 05.30.00 UTC
-- WITA: Senin, 11 Agustus 2025 06.30.00 UTC
-- WIT: Senin, 11 Agustus 2025 07.30.00 UTC
+- WIB: Senin, 11 Agustus 2025 06.27.22 UTC
+- WITA: Senin, 11 Agustus 2025 07.27.22 UTC
+- WIT: Senin, 11 Agustus 2025 08.27.22 UTC
 
 Kutipan Inspiratif:
-"I don't care what the haters and naysayers say. If they make jokes about me, I'll laugh because they'll probably be funny."
+"People say me bad, trust me i am the worst!!!"
 
 
-Kategori: funny
+Kategori: attitude
 
