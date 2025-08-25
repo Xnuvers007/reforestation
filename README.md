@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 25 Agustus 2025 20.37.33 UTC
-- WITA: Senin, 25 Agustus 2025 21.37.33 UTC
-- WIT: Senin, 25 Agustus 2025 22.37.33 UTC
+- WIB: Senin, 25 Agustus 2025 21.30.44 UTC
+- WITA: Senin, 25 Agustus 2025 22.30.44 UTC
+- WIT: Senin, 25 Agustus 2025 23.30.44 UTC
 
 Kutipan Inspiratif:
-"Dont Copy My Style."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
-Kategori: attitude
+Kategori: inspirational
 
