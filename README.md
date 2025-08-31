@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 1 September 2025 04.23.03 UTC
-- WITA: Senin, 1 September 2025 05.23.03 UTC
-- WIT: Senin, 1 September 2025 06.23.03 UTC
+- WIB: Senin, 1 September 2025 05.26.32 UTC
+- WITA: Senin, 1 September 2025 06.26.32 UTC
+- WIT: Senin, 1 September 2025 07.26.32 UTC
 
 Kutipan Inspiratif:
-"When i was born..Devil said..?Oh Shit..!! Competition?"
+"I'm in favor of any technology that makes my work available to the reading public at a reasonable price."
 
 
-Kategori: attitude
+Kategori: technology
 
