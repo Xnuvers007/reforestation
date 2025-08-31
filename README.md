@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 1 September 2025 03.27.07 UTC
-- WITA: Senin, 1 September 2025 04.27.07 UTC
-- WIT: Senin, 1 September 2025 05.27.07 UTC
+- WIB: Senin, 1 September 2025 04.23.03 UTC
+- WITA: Senin, 1 September 2025 05.23.03 UTC
+- WIT: Senin, 1 September 2025 06.23.03 UTC
 
 Kutipan Inspiratif:
-"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: technology
+Kategori: attitude
 
