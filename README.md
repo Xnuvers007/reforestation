@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 2 September 2025 06.24.13 UTC
-- WITA: Selasa, 2 September 2025 07.24.13 UTC
-- WIT: Selasa, 2 September 2025 08.24.13 UTC
+- WIB: Selasa, 2 September 2025 09.03.08 UTC
+- WITA: Selasa, 2 September 2025 10.03.08 UTC
+- WIT: Selasa, 2 September 2025 11.03.08 UTC
 
 Kutipan Inspiratif:
-"Im sorry my fault. I forgot youre an Idiot."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
 Kategori: attitude
