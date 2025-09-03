@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 3 September 2025 17.29.14 UTC
-- WITA: Rabu, 3 September 2025 18.29.14 UTC
-- WIT: Rabu, 3 September 2025 19.29.14 UTC
+- WIB: Rabu, 3 September 2025 18.22.02 UTC
+- WITA: Rabu, 3 September 2025 19.22.02 UTC
+- WIT: Rabu, 3 September 2025 20.22.02 UTC
 
 Kutipan Inspiratif:
-"It took me a long time not to judge myself through someone else's eyes"
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: motivational
+Kategori: attitude
 
