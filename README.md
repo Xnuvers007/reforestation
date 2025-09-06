@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 6 September 2025 15.29.05 UTC
-- WITA: Sabtu, 6 September 2025 16.29.05 UTC
-- WIT: Sabtu, 6 September 2025 17.29.05 UTC
+- WIB: Sabtu, 6 September 2025 16.23.49 UTC
+- WITA: Sabtu, 6 September 2025 17.23.49 UTC
+- WIT: Sabtu, 6 September 2025 18.23.49 UTC
 
 Kutipan Inspiratif:
-"You will never know what you are capable of until you take that first step and go for it."
+"i am what i am.. i will never try to be some one else."
 
 
-Kategori: motivational
+Kategori: attitude
 
