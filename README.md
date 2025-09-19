@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 19 September 2025 10.06.03 UTC
-- WITA: Jumat, 19 September 2025 11.06.03 UTC
-- WIT: Jumat, 19 September 2025 12.06.03 UTC
+- WIB: Jumat, 19 September 2025 10.38.43 UTC
+- WITA: Jumat, 19 September 2025 11.38.43 UTC
+- WIT: Jumat, 19 September 2025 12.38.43 UTC
 
 Kutipan Inspiratif:
-"Somebody asked me to explain the relationship between you and me, they expected the answer as, just friends. But I simply smiled and said. Gods gift."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: friendship
+Kategori: motivational
 
