@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 22 September 2025 19.56.16 UTC
-- WITA: Senin, 22 September 2025 20.56.16 UTC
-- WIT: Senin, 22 September 2025 21.56.16 UTC
+- WIB: Senin, 22 September 2025 20.35.01 UTC
+- WITA: Senin, 22 September 2025 21.35.01 UTC
+- WIT: Senin, 22 September 2025 22.35.01 UTC
 
 Kutipan Inspiratif:
-"Technology without hatred can be a blessing. Technology with hatred is always a disaster."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: technology
+Kategori: attitude
 
