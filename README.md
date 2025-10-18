@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 18 Oktober 2025 12.26.43 UTC
-- WITA: Sabtu, 18 Oktober 2025 13.26.43 UTC
-- WIT: Sabtu, 18 Oktober 2025 14.26.43 UTC
+- WIB: Sabtu, 18 Oktober 2025 13.36.02 UTC
+- WITA: Sabtu, 18 Oktober 2025 14.36.02 UTC
+- WIT: Sabtu, 18 Oktober 2025 15.36.02 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"The secret to success is to know something nobody else knows."
 
 
-Kategori: attitude
+Kategori: success
 
