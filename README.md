@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Selasa, 28 Oktober 2025 20.37.33 UTC
-- WITA: Selasa, 28 Oktober 2025 21.37.33 UTC
-- WIT: Selasa, 28 Oktober 2025 22.37.33 UTC
+- WIB: Selasa, 28 Oktober 2025 21.31.49 UTC
+- WITA: Selasa, 28 Oktober 2025 22.31.49 UTC
+- WIT: Selasa, 28 Oktober 2025 23.31.49 UTC
 
 Kutipan Inspiratif:
-"Im sorry my fault. I forgot youre an Idiot."
+"Technology gives us the facilities that lessen the barriers of time and distance - the telegraph and cable, the telephone, radio, and the rest."
 
 
-Kategori: attitude
+Kategori: technology
 
