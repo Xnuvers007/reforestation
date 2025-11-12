@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 12 November 2025 06.25.33 UTC
-- WITA: Rabu, 12 November 2025 07.25.33 UTC
-- WIT: Rabu, 12 November 2025 08.25.33 UTC
+- WIB: Rabu, 12 November 2025 09.07.13 UTC
+- WITA: Rabu, 12 November 2025 10.07.13 UTC
+- WIT: Rabu, 12 November 2025 11.07.13 UTC
 
 Kutipan Inspiratif:
-"Technology is not neutral."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: technology
+Kategori: motivational
 
