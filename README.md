@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 16 November 2025 23.32.05 UTC
-- WITA: Senin, 17 November 2025 00.32.05 UTC
-- WIT: Senin, 17 November 2025 01.32.05 UTC
+- WIB: Senin, 17 November 2025 00.24.48 UTC
+- WITA: Senin, 17 November 2025 01.24.48 UTC
+- WIT: Senin, 17 November 2025 02.24.48 UTC
 
 Kutipan Inspiratif:
-"i am what i am.. i will never try to be some one else."
+"The further you get into technology, the further you go into gaming. That's the general rule."
 
 
-Kategori: attitude
+Kategori: technology
 
