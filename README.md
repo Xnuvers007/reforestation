@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 20 November 2025 01.40.37 UTC
-- WITA: Kamis, 20 November 2025 02.40.37 UTC
-- WIT: Kamis, 20 November 2025 03.40.37 UTC
+- WIB: Kamis, 20 November 2025 02.23.44 UTC
+- WITA: Kamis, 20 November 2025 03.23.44 UTC
+- WIT: Kamis, 20 November 2025 04.23.44 UTC
 
 Kutipan Inspiratif:
-"It's not the size of the dog in the fight, but the size of the fight in the dog."
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
-Kategori: motivational
+Kategori: technology
 
