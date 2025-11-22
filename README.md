@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 22 November 2025 23.32.38 UTC
-- WITA: Minggu, 23 November 2025 00.32.38 UTC
-- WIT: Minggu, 23 November 2025 01.32.38 UTC
+- WIB: Minggu, 23 November 2025 00.24.36 UTC
+- WITA: Minggu, 23 November 2025 01.24.36 UTC
+- WIT: Minggu, 23 November 2025 02.24.36 UTC
 
 Kutipan Inspiratif:
-"You're going to fail your way to success, you have nothing to be ashamed of so keep your head up. It’s much easier to come up with excuses of why you can't do it. If you do what is easy your life will be hard."
+"You create beauty with your attitude, your behaviours, and your actions. Its all up to you"
 
 
-Kategori: motivational
+Kategori: attitude
 
