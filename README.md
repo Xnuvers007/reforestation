@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 23 November 2025 13.39.13 UTC
-- WITA: Minggu, 23 November 2025 14.39.13 UTC
-- WIT: Minggu, 23 November 2025 15.39.13 UTC
+- WIB: Minggu, 23 November 2025 14.25.57 UTC
+- WITA: Minggu, 23 November 2025 15.25.57 UTC
+- WIT: Minggu, 23 November 2025 16.25.57 UTC
 
 Kutipan Inspiratif:
-"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
 Kategori: technology
