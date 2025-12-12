@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 12 Desember 2025 15.41.46 UTC
-- WITA: Jumat, 12 Desember 2025 16.41.46 UTC
-- WIT: Jumat, 12 Desember 2025 17.41.46 UTC
+- WIB: Jumat, 12 Desember 2025 16.34.53 UTC
+- WITA: Jumat, 12 Desember 2025 17.34.53 UTC
+- WIT: Jumat, 12 Desember 2025 18.34.53 UTC
 
 Kutipan Inspiratif:
-"The negative side of the American Dream comes when people pursue success at any cost, which in turn destroys the vision and the dream."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: success
+Kategori: motivational
 
