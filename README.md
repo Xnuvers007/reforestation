@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 5 Januari 2026 14.37.16 UTC
-- WITA: Senin, 5 Januari 2026 15.37.16 UTC
-- WIT: Senin, 5 Januari 2026 16.37.16 UTC
+- WIB: Senin, 5 Januari 2026 15.47.44 UTC
+- WITA: Senin, 5 Januari 2026 16.47.44 UTC
+- WIT: Senin, 5 Januari 2026 17.47.44 UTC
 
 Kutipan Inspiratif:
-"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
 Kategori: inspirational
