@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 12 Januari 2026 09.31.29 UTC
-- WITA: Senin, 12 Januari 2026 10.31.29 UTC
-- WIT: Senin, 12 Januari 2026 11.31.29 UTC
+- WIB: Senin, 12 Januari 2026 11.16.24 UTC
+- WITA: Senin, 12 Januari 2026 12.16.24 UTC
+- WIT: Senin, 12 Januari 2026 13.16.24 UTC
 
 Kutipan Inspiratif:
-"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
+"Technology is the fashion of the '90s. It affects everyone, and everyone is interested in it - either from fear of being left behind or because they have a real need to use technology."
 
 
 Kategori: technology
