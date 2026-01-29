@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 29 Januari 2026 11.46.34 UTC
-- WITA: Kamis, 29 Januari 2026 12.46.34 UTC
-- WIT: Kamis, 29 Januari 2026 13.46.34 UTC
+- WIB: Kamis, 29 Januari 2026 12.55.02 UTC
+- WITA: Kamis, 29 Januari 2026 13.55.02 UTC
+- WIT: Kamis, 29 Januari 2026 14.55.02 UTC
 
 Kutipan Inspiratif:
-"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
-Kategori: inspirational
+Kategori: technology
 
