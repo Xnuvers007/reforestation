@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 8 Februari 2026 22.36.55 UTC
-- WITA: Minggu, 8 Februari 2026 23.36.55 UTC
-- WIT: Senin, 9 Februari 2026 00.36.55 UTC
+- WIB: Minggu, 8 Februari 2026 23.46.05 UTC
+- WITA: Senin, 9 Februari 2026 00.46.05 UTC
+- WIT: Senin, 9 Februari 2026 01.46.05 UTC
 
 Kutipan Inspiratif:
-"If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place."
+"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
 
 
-Kategori: motivational
+Kategori: inspirational
 
