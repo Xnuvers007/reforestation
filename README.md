@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 11 Februari 2026 12.41.27 UTC
-- WITA: Rabu, 11 Februari 2026 13.41.27 UTC
-- WIT: Rabu, 11 Februari 2026 14.41.27 UTC
+- WIB: Rabu, 11 Februari 2026 14.16.10 UTC
+- WITA: Rabu, 11 Februari 2026 15.16.10 UTC
+- WIT: Rabu, 11 Februari 2026 16.16.10 UTC
 
 Kutipan Inspiratif:
-"It's not a faith in technology. It's faith in people."
+"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
 
 
-Kategori: technology
+Kategori: attitude
 
