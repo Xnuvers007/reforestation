@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 2 Maret 2026 04.33.32 UTC
-- WITA: Senin, 2 Maret 2026 05.33.32 UTC
-- WIT: Senin, 2 Maret 2026 06.33.32 UTC
+- WIB: Senin, 2 Maret 2026 05.36.38 UTC
+- WITA: Senin, 2 Maret 2026 06.36.38 UTC
+- WIT: Senin, 2 Maret 2026 07.36.38 UTC
 
 Kutipan Inspiratif:
-"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
+"It took me a long time not to judge myself through someone else's eyes"
 
 
-Kategori: inspirational
+Kategori: motivational
 
