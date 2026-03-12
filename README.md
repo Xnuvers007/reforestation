@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Kamis, 12 Maret 2026 11.55.29 UTC
-- WITA: Kamis, 12 Maret 2026 12.55.29 UTC
-- WIT: Kamis, 12 Maret 2026 13.55.29 UTC
+- WIB: Kamis, 12 Maret 2026 13.01.22 UTC
+- WITA: Kamis, 12 Maret 2026 14.01.22 UTC
+- WIT: Kamis, 12 Maret 2026 15.01.22 UTC
 
 Kutipan Inspiratif:
-"The moral virtues, then, are produced in us neither by nature nor against nature. Nature, indeed, prepares in us the ground for their reception, but their complete formation is the product of habit."
+"Worry about your character, not your reputation. Your character is who you are, your reputation is who people think you are."
 
 
-Kategori: nature
+Kategori: inspirational
 
