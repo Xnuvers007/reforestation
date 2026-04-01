@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Rabu, 1 April 2026 16.19.48 UTC
-- WITA: Rabu, 1 April 2026 17.19.48 UTC
-- WIT: Rabu, 1 April 2026 18.19.48 UTC
+- WIB: Rabu, 1 April 2026 18.10.37 UTC
+- WITA: Rabu, 1 April 2026 19.10.37 UTC
+- WIT: Rabu, 1 April 2026 20.10.37 UTC
 
 Kutipan Inspiratif:
-"We have more media than ever and more technology in our lives. It's supposed to help us communicate, but it has the opposite effect of isolating us."
+"Therefore, you are not training young people for the world of today and the world of tomorrow unless you are doing proven technology training. That is one of the reasons I'm so concerned."
 
 
 Kategori: technology
