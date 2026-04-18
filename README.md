@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Sabtu, 18 April 2026 22.49.44 UTC
-- WITA: Sabtu, 18 April 2026 23.49.44 UTC
-- WIT: Minggu, 19 April 2026 00.49.44 UTC
+- WIB: Sabtu, 18 April 2026 23.54.47 UTC
+- WITA: Minggu, 19 April 2026 00.54.47 UTC
+- WIT: Minggu, 19 April 2026 01.54.47 UTC
 
 Kutipan Inspiratif:
-"Someone Asked me what is UR attitude then i simply replied ? BEING SINGLE IS MY ATTITUDE"
+"Success is a state of mind. If you want success, start thinking of yourself as a success."
 
 
-Kategori: attitude
+Kategori: success
 
