@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Senin, 20 April 2026 16.14.43 UTC
-- WITA: Senin, 20 April 2026 17.14.43 UTC
-- WIT: Senin, 20 April 2026 18.14.43 UTC
+- WIB: Senin, 20 April 2026 18.39.03 UTC
+- WITA: Senin, 20 April 2026 19.39.03 UTC
+- WIT: Senin, 20 April 2026 20.39.03 UTC
 
 Kutipan Inspiratif:
-"Before you diagnose yourself with depression or low self-esteem, first make sure that you are not, in fact, just surrounded by assholes."
+"Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success."
 
 
-Kategori: inspirational
+Kategori: success
 
