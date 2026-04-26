@@ -1,11 +1,11 @@
 ⏰ Diperbarui pada:
-- WIB: Minggu, 26 April 2026 18.50.24 UTC
-- WITA: Minggu, 26 April 2026 19.50.24 UTC
-- WIT: Minggu, 26 April 2026 20.50.24 UTC
+- WIB: Minggu, 26 April 2026 20.37.00 UTC
+- WITA: Minggu, 26 April 2026 21.37.00 UTC
+- WIT: Minggu, 26 April 2026 22.37.00 UTC
 
 Kutipan Inspiratif:
-"The technology of the time dictated the way things looked."
+"When i was born..Devil said..?Oh Shit..!! Competition?"
 
 
-Kategori: technology
+Kategori: attitude
 
