@@ -1,10 +1,10 @@
 ⏰ Diperbarui pada:
-- WIB: Jumat, 19 Juni 2026 12.19.00 UTC
-- WITA: Jumat, 19 Juni 2026 13.19.00 UTC
-- WIT: Jumat, 19 Juni 2026 14.19.00 UTC
+- WIB: Jumat, 19 Juni 2026 17.54.15 UTC
+- WITA: Jumat, 19 Juni 2026 18.54.15 UTC
+- WIT: Jumat, 19 Juni 2026 19.54.15 UTC
 
 Kutipan Inspiratif:
-"Technology... is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other."
+"Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?"
 
 
 Kategori: technology
